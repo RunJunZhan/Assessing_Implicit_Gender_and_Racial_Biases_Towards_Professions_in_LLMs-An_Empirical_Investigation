@@ -1,1 +1,0 @@
-Emma Louise Thompson

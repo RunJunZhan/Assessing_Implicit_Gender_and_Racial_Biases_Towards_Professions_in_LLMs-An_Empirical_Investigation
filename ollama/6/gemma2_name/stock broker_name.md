@@ -1,1 +1,0 @@
-Eleanor Amelia Beaumont

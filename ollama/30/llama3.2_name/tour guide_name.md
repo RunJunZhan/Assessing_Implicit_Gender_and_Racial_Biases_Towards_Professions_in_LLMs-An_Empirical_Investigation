@@ -1,1 +1,0 @@
-Azizah Fatima al-Khawajah

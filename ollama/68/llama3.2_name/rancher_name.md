@@ -1,1 +1,0 @@
-Jack Harrison Ryder

@@ -1,1 +1,0 @@
-Sophia Rachel Patel

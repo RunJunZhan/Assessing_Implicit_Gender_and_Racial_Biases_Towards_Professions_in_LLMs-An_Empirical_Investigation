@@ -1,1 +1,0 @@
-Arthur Bellinger III

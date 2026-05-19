@@ -1,1 +1,0 @@
-Étienne Auguste Dupont

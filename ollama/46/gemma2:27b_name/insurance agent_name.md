@@ -1,1 +1,0 @@
-Theodore Bartholomew Quince III

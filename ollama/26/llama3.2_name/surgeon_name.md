@@ -1,1 +1,0 @@
-Evelyn Sophia Patel

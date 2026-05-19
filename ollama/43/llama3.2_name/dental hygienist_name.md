@@ -1,1 +1,0 @@
-Kaia Rose Thompson

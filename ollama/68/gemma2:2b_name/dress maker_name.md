@@ -1,1 +1,0 @@
-Elara De' Rossi

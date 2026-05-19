@@ -1,1 +1,0 @@
-Harold Winston Everett III

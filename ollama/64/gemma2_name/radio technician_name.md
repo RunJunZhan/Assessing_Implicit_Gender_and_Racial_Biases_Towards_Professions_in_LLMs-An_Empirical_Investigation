@@ -1,1 +1,0 @@
-Elias Silas Finch

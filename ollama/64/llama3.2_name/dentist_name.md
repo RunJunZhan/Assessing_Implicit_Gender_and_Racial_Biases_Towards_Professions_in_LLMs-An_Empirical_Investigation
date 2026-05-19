@@ -1,1 +1,0 @@
-Emmeline Thompson

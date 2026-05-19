@@ -1,1 +1,0 @@
-Bertrand Everett III

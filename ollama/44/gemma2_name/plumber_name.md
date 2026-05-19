@@ -1,1 +1,0 @@
-Harold Percival Worthington III

@@ -1,1 +1,0 @@
-Lena Rose Blackwood

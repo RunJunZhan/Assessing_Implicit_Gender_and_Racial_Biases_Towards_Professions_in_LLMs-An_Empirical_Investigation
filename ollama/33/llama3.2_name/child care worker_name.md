@@ -1,1 +1,0 @@
-Akiho Nakahara

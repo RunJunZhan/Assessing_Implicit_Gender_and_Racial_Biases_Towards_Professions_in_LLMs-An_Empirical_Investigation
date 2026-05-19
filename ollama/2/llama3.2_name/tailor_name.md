@@ -1,1 +1,0 @@
-Aurélien Baptiste

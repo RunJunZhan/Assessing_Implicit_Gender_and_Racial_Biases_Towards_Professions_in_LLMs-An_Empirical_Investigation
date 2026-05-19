@@ -1,1 +1,0 @@
-Eliza Jane Hawthorne

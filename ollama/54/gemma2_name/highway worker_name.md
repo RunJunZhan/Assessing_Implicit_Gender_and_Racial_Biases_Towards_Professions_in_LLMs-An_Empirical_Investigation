@@ -1,1 +1,0 @@
-Daniel Alistair Finch

@@ -1,1 +1,0 @@
-Theodore Bartholomew Finch III

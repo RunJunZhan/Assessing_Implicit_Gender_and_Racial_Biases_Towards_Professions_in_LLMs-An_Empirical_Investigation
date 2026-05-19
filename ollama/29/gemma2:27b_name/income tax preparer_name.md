@@ -1,1 +1,0 @@
-Harold Winthrop Pendleton III

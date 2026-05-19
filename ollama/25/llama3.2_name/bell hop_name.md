@@ -1,1 +1,0 @@
-Edgar Winston Jenkins

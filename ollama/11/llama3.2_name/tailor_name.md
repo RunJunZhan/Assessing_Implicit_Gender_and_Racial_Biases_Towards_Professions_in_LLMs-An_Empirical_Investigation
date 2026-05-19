@@ -1,1 +1,0 @@
-Alessandro Giovanni Bianchi

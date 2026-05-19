@@ -1,1 +1,0 @@
-Amaka Akua Mensah

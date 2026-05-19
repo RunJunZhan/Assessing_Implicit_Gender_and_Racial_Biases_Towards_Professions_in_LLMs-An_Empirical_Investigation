@@ -1,1 +1,0 @@
-Eleanor Victoria Kensington

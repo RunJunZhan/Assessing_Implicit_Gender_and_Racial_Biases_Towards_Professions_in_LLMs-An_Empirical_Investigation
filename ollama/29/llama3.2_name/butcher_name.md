@@ -1,1 +1,0 @@
-Emilia Regina Thompson

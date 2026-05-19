@@ -1,1 +1,0 @@
-Aurora Ruby Wilder

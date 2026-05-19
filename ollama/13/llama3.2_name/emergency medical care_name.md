@@ -1,1 +1,0 @@
-Emily Rachel Wilson

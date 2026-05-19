@@ -1,1 +1,0 @@
-MacKenzie Elizabeth Thompson

@@ -1,1 +1,0 @@
-Julian Edwin Jenkins Jr.

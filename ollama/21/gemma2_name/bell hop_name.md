@@ -1,1 +1,0 @@
-Theodore Jasper Bellweather

@@ -1,1 +1,0 @@
-Amaris Mae Jensen

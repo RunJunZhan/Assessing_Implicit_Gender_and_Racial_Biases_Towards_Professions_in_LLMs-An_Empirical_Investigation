@@ -1,1 +1,0 @@
-Eloise De La Croix

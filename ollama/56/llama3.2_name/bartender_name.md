@@ -1,1 +1,0 @@
-Emily Kathleen McGillicuddy

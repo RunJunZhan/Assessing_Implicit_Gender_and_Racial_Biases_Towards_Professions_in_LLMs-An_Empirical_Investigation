@@ -1,1 +1,0 @@
-Percival Thaddeus Finch

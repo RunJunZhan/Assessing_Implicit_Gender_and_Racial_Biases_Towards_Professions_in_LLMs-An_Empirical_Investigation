@@ -1,1 +1,0 @@
-Astrid Helena Andersdotter

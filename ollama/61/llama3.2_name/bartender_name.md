@@ -1,1 +1,0 @@
-Finley Mae O'Connor

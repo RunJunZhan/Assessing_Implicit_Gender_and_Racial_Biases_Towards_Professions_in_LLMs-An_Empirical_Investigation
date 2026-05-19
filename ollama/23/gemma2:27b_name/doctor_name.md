@@ -1,1 +1,0 @@
-Evelyn Rosalind Thorne

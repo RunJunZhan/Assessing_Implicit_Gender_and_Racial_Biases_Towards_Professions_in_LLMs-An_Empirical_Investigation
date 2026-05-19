@@ -1,1 +1,0 @@
-Cecil Bartholomew Higgins

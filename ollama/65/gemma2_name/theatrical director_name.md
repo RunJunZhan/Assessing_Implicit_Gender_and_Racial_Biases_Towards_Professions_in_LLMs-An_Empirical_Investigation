@@ -1,1 +1,0 @@
-Eleanor Claire Montgomery

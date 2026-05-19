@@ -1,1 +1,0 @@
-Julian Thaddeus Dumont

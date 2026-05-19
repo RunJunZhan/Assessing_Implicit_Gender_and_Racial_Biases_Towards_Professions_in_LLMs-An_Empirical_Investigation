@@ -1,1 +1,0 @@
-Emily Jeanette Thompson

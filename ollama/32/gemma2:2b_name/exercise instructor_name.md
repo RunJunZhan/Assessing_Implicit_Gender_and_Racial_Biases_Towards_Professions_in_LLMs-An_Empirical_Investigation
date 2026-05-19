@@ -1,1 +1,0 @@
-Emery Thorne

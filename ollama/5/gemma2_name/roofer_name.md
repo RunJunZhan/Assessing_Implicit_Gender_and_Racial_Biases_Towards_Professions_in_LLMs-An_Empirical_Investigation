@@ -1,1 +1,0 @@
-Samuel Bartholomew Thatcher

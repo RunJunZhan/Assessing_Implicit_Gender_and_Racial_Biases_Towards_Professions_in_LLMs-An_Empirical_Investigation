@@ -1,1 +1,0 @@
-Emmanuelle Sophie Dupont

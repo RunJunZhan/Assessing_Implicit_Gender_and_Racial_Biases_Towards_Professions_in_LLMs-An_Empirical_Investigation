@@ -1,1 +1,0 @@
-Harriet Elara Thompson

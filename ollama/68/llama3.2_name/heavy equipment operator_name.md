@@ -1,1 +1,0 @@
-Ryder Axel Jensen

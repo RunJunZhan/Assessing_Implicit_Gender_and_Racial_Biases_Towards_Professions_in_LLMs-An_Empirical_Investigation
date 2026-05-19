@@ -1,1 +1,0 @@
-Beatrice Henrietta Finch

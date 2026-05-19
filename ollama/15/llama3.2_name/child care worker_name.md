@@ -1,1 +1,0 @@
-Lily Mae Thompson

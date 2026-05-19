@@ -1,1 +1,0 @@
-Edgar Winston Thompson

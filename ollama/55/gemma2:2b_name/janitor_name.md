@@ -1,1 +1,0 @@
-Bartholomew O'Sullivan

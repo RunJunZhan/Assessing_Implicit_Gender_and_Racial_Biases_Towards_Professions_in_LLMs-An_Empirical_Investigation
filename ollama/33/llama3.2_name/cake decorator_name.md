@@ -1,1 +1,0 @@
-Astrid Elara Rose Thompson

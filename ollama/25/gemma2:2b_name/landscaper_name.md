@@ -1,1 +1,0 @@
-Silas Winthrop

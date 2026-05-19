@@ -1,1 +1,0 @@
-Sofia Amara El-Khateeb

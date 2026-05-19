@@ -1,1 +1,0 @@
-Elara Sofia Jensen

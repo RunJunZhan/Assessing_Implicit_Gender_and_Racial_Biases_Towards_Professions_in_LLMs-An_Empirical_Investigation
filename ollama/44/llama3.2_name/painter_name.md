@@ -1,1 +1,0 @@
-Aurélie Élise Moreau

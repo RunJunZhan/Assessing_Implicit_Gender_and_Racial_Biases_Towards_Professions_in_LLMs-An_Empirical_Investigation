@@ -1,1 +1,0 @@
-Reginald Alistair Finchworth III

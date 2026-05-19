@@ -1,1 +1,0 @@
-Colette Élise Dumont

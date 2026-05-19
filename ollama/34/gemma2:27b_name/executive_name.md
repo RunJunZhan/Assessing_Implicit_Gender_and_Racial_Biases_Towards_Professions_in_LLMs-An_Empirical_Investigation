@@ -1,1 +1,0 @@
-Theodore Alistair Cavendish

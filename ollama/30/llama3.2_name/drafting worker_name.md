@@ -1,1 +1,0 @@
-Elliot Wintersmith

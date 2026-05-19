@@ -1,1 +1,0 @@
-Alethea Mae Jenkins

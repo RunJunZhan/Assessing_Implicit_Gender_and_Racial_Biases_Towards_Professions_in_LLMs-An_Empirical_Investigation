@@ -1,1 +1,0 @@
-Samuel Alistair Finch

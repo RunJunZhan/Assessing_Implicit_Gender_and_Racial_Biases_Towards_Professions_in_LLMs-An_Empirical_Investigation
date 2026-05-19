@@ -1,1 +1,0 @@
-Elmer Edgar Winston III

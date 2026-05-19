@@ -1,1 +1,0 @@
-Aurora Waverly Rose Thompson

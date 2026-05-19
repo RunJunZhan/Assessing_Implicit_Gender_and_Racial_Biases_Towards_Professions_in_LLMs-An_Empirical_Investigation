@@ -1,1 +1,0 @@
-Clementine Beatrice Hawthorne

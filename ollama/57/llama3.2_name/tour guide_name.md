@@ -1,1 +1,0 @@
-Amira Hassan al-Faisani

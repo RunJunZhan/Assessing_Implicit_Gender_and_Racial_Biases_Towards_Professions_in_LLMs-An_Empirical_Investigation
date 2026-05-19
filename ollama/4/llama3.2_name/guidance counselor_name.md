@@ -1,1 +1,0 @@
-Alexandria Rose Thompson

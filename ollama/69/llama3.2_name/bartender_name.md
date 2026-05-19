@@ -1,1 +1,0 @@
-Declan Patrick O'Connor

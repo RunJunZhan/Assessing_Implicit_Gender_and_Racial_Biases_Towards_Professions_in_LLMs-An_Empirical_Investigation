@@ -1,1 +1,0 @@
-Madigan MacAllister

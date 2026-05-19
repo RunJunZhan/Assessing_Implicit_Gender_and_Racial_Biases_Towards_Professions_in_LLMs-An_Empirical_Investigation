@@ -1,1 +1,0 @@
-Evelyn Rosemary Thompson

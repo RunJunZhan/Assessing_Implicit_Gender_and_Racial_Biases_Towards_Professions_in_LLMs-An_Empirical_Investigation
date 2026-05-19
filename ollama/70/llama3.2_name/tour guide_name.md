@@ -1,1 +1,0 @@
-Aziz Amari Al-Khateeb

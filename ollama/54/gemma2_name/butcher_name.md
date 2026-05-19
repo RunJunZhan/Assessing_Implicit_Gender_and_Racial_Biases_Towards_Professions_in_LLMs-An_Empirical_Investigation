@@ -1,1 +1,0 @@
-Bartholomew Silas Grimshaw

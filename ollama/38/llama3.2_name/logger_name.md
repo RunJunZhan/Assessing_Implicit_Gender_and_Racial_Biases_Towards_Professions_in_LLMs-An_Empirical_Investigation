@@ -1,1 +1,0 @@
-Asher Ryder Blackwood

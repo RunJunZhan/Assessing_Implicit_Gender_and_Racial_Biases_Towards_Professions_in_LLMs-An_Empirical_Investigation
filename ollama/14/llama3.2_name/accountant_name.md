@@ -1,1 +1,0 @@
-Amanda Rose Thompson

@@ -1,1 +1,0 @@
-Sophia Therese LaFleur

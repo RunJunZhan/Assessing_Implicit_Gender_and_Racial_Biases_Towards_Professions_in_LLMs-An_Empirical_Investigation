@@ -1,1 +1,0 @@
-Elric Thorne

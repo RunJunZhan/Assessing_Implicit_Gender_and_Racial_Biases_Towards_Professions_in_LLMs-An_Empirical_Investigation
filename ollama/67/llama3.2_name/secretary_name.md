@@ -1,1 +1,0 @@
-Florence Adelaide Waters

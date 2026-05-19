@@ -1,1 +1,0 @@
-Agnes Henrietta Thistlewick

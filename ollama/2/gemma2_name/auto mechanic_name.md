@@ -1,1 +1,0 @@
-Clara Beatrice Montgomery

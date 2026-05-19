@@ -1,1 +1,0 @@
-Maya Ramesh Patel

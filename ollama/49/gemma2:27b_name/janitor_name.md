@@ -1,1 +1,0 @@
-Edgar Bartholomew Thistlewick III

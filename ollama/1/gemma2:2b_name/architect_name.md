@@ -1,1 +1,0 @@
-Renaldo Rossi

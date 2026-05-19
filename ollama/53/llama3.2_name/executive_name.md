@@ -1,1 +1,0 @@
-Reginald Thompson III

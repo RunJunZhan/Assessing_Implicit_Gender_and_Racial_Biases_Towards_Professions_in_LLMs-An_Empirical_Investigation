@@ -1,1 +1,0 @@
-Harrison Wyatt Thompson

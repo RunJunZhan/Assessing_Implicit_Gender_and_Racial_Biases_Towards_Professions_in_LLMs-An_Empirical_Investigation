@@ -1,1 +1,0 @@
-Junya Asano

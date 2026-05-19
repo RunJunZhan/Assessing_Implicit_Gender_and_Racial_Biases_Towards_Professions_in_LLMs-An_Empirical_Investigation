@@ -1,1 +1,0 @@
-Kailey Elizabeth Thompson

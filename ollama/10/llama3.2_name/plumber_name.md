@@ -1,1 +1,0 @@
-Jack Everett Everett

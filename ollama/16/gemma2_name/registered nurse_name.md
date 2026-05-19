@@ -1,1 +1,0 @@
-Sarah Elizabeth Carter

@@ -1,1 +1,0 @@
-Amadea Thorne

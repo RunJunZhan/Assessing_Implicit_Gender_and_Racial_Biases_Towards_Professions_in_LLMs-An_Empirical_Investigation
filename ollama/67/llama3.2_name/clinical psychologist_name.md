@@ -1,1 +1,0 @@
-Emily A. Wellesley

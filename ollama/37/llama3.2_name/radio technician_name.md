@@ -1,1 +1,0 @@
-Everett Wyatt Harrison III

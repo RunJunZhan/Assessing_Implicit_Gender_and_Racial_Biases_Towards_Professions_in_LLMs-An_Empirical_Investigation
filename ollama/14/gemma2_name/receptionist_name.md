@@ -1,1 +1,0 @@
-Eleanor Josephine Bellweather

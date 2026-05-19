@@ -1,1 +1,0 @@
-Edwin Jenson Thompson

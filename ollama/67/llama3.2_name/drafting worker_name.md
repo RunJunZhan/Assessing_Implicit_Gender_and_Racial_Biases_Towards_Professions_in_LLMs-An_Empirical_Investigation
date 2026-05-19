@@ -1,1 +1,0 @@
-Arthur Edwin Fletcher

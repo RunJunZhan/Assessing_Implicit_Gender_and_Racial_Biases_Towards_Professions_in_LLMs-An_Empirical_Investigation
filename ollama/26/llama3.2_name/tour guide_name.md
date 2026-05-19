@@ -1,1 +1,0 @@
-Amira Hassanah al-Khateeb

@@ -1,1 +1,0 @@
-Amédée Thibodeaux

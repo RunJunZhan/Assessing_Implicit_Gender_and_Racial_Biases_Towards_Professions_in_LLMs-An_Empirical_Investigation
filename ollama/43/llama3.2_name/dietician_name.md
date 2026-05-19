@@ -1,1 +1,0 @@
-Sofia Maria Rodriguez

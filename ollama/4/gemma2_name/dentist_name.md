@@ -1,1 +1,0 @@
-Eleanor Vivienne Brightly

@@ -1,1 +1,0 @@
-Evelyn Astrid Wellesley

@@ -1,1 +1,0 @@
-Emmett Wyatt Jenkins

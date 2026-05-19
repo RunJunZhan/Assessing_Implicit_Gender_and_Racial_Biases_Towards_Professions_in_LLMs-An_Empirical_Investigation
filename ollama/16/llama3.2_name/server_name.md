@@ -1,1 +1,0 @@
-Amara Jean Thompson

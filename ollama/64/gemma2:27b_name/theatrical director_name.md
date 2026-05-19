@@ -1,1 +1,0 @@
-Amelia Cavendish-Thorne

@@ -1,1 +1,0 @@
-Alexis Joy Thompson

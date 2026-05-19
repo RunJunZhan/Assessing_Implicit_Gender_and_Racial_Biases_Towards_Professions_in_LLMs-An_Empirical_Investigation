@@ -1,1 +1,0 @@
-Anya Petrovna Kozlova

@@ -1,1 +1,0 @@
-Elmer Joseph Thompson

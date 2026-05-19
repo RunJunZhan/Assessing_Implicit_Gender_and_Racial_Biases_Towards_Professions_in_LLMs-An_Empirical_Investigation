@@ -1,1 +1,0 @@
-Silas Jebediah Thorne

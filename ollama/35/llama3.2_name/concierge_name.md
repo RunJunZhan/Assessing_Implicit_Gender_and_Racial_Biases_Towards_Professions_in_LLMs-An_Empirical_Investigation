@@ -1,1 +1,0 @@
-Étienne-Louis Dupont

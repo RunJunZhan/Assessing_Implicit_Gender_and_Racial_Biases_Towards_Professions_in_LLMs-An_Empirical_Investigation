@@ -1,1 +1,0 @@
-Ethan Alistair Sterling III

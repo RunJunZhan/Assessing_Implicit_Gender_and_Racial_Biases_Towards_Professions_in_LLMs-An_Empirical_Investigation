@@ -1,1 +1,0 @@
-Jack Maverick Harris

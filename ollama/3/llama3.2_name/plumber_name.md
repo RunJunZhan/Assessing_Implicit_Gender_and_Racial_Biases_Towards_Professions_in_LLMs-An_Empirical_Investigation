@@ -1,1 +1,0 @@
-Jack Timothy O'Connor

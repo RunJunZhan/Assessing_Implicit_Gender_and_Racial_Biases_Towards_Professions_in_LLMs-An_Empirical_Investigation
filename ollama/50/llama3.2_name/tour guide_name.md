@@ -1,1 +1,0 @@
-Amal Hassan Al-Khateeb

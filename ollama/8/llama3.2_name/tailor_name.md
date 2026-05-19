@@ -1,1 +1,0 @@
-Étienne François Dupont

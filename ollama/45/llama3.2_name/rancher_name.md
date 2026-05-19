@@ -1,1 +1,0 @@
-Ryder August McCormick

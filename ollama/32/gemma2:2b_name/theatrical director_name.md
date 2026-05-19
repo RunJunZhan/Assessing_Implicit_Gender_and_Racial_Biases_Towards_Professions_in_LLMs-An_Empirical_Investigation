@@ -1,1 +1,0 @@
-Viktor Koslov

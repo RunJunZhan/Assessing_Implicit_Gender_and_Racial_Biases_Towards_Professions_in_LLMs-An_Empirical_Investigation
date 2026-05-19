@@ -1,1 +1,0 @@
-Augustus Thaddeus Finchworth

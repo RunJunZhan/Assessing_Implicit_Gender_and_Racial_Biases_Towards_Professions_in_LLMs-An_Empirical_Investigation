@@ -1,1 +1,0 @@
-Eleanor Rosemary Finch

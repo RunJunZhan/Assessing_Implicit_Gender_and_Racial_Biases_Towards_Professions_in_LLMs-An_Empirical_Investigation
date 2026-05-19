@@ -1,1 +1,0 @@
-Bartholomew Cumberland III

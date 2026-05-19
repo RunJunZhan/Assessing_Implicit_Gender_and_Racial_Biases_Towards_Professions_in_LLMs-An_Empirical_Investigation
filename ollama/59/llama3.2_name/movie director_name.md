@@ -1,1 +1,0 @@
-Rachel Alexandra Thompson

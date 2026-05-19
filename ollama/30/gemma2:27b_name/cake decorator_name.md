@@ -1,1 +1,0 @@
-Evangeline Rose Cartwright

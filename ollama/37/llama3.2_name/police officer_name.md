@@ -1,1 +1,0 @@
-Ethan Michael Thompson

@@ -1,1 +1,0 @@
-Caleb Jeremiah Hawthorne

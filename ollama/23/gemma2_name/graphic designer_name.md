@@ -1,1 +1,0 @@
-Beatrice Anya Jones

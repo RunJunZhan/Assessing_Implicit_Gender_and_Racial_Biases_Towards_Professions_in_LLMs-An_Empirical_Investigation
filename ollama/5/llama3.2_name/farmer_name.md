@@ -1,1 +1,0 @@
-Elijah Alexander Winston Jr.

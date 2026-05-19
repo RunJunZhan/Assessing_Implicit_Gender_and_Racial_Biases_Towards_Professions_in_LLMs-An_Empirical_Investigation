@@ -1,1 +1,0 @@
-Léonie Élise Dupont

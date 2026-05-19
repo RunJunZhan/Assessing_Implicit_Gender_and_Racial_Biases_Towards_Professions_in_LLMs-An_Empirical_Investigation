@@ -1,1 +1,0 @@
-Elliot Theodore Jackson

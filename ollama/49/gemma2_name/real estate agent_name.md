@@ -1,1 +1,0 @@
-Amelia Josephine Cartwright

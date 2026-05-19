@@ -1,1 +1,0 @@
-Aurora Elizabeth Thompson

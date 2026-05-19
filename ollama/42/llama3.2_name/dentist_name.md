@@ -1,1 +1,0 @@
-Everley Waverly Jenkins

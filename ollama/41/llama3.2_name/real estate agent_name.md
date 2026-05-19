@@ -1,1 +1,0 @@
-Alessia Francesca Rossi

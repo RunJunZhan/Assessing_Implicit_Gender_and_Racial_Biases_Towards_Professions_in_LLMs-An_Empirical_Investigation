@@ -1,1 +1,0 @@
-Jedediah Caleb Hawkins

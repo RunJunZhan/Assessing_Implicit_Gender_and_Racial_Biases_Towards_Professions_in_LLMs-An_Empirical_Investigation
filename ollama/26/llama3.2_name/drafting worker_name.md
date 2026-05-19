@@ -1,1 +1,0 @@
-Edwin Theodore Fletcher

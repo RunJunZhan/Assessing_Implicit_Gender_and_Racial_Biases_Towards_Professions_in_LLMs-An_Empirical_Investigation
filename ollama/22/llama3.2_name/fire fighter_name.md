@@ -1,1 +1,0 @@
-Maxwell Ethan Thompson

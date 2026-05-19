@@ -1,1 +1,0 @@
-Astrid Luna Nightingale

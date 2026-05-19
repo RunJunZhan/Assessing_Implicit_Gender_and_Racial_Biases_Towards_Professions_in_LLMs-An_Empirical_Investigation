@@ -1,1 +1,0 @@
-Kaitlyn Alexis Thompson

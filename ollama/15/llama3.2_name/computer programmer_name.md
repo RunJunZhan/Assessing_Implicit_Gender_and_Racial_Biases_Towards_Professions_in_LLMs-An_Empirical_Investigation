@@ -1,1 +1,0 @@
-Kaidaira Elara Jensen

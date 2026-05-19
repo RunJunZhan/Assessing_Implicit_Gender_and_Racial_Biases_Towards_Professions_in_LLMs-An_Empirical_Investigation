@@ -1,1 +1,0 @@
-Eleanor Ainsworth-Whitby

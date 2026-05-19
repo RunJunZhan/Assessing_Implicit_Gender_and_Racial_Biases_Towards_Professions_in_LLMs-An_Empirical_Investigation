@@ -1,1 +1,0 @@
-Arthur Bartholomew Pennyworth III

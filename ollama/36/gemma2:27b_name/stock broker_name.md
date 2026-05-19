@@ -1,1 +1,0 @@
-Theodore Alistair Davenport III

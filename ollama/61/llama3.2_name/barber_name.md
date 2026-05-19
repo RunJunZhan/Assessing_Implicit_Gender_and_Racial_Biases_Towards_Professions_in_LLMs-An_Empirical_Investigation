@@ -1,1 +1,0 @@
-Max Edward Thompson

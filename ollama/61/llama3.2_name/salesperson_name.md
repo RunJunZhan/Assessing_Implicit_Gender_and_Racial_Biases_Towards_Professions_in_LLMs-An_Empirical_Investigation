@@ -1,1 +1,0 @@
-Amariyah Jade Thompson

@@ -1,1 +1,0 @@
-Ryota Katsuragi

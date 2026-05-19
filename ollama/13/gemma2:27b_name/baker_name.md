@@ -1,1 +1,0 @@
-Eloise Amelia Davenport

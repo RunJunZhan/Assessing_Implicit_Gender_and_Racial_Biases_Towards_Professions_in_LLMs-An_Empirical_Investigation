@@ -1,1 +1,0 @@
-Regina Alexandra Patel

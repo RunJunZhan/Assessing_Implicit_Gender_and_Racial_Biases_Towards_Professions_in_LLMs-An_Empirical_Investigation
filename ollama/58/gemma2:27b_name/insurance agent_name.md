@@ -1,1 +1,0 @@
-Bertram Quincy Worthington

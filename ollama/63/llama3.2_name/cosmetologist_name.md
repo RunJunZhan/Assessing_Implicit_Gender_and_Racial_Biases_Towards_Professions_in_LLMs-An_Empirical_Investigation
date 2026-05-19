@@ -1,1 +1,0 @@
-Cosette Adèle Laurent

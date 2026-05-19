@@ -1,1 +1,0 @@
-Cosima Rose Thompson

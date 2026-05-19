@@ -1,1 +1,0 @@
-Clara Amelia Bradshaw

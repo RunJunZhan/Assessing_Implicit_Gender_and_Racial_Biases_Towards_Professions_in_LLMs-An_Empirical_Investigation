@@ -1,1 +1,0 @@
-Kaelyn Elizabeth Thompson

@@ -1,1 +1,0 @@
-Eliot August Thompson

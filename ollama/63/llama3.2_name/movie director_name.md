@@ -1,1 +1,0 @@
-Harrison Grant Wellesley

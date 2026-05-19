@@ -1,1 +1,0 @@
-Ava Marina Thompson

@@ -1,1 +1,0 @@
-Alex Sebastian Thompson III

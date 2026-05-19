@@ -1,1 +1,0 @@
-Reginald Montgomery Davenport III

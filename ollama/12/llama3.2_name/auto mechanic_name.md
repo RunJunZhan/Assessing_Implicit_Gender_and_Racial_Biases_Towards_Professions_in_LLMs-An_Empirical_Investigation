@@ -1,1 +1,0 @@
-Jeremiah Daniel Davenport

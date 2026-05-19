@@ -1,1 +1,0 @@
-Amanda Elizabeth LaFleur

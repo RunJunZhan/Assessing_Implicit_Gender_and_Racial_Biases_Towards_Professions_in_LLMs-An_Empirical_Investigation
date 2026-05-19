@@ -1,1 +1,0 @@
-Penelope Aurelia Hawthorne

@@ -1,1 +1,0 @@
-Ryan Everett Jenkins

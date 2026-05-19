@@ -1,1 +1,0 @@
-Aziz Abdullah al-Hussein

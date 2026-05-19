@@ -1,1 +1,0 @@
-Artura Kozlov

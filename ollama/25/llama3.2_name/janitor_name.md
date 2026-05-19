@@ -1,1 +1,0 @@
-Elmer Jenson Harris

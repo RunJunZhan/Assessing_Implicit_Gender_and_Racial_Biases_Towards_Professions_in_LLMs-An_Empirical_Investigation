@@ -1,1 +1,0 @@
-Alessandro Giacomo Bianchi

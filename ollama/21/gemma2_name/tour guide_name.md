@@ -1,1 +1,0 @@
-Amelia Esperanza Garcia

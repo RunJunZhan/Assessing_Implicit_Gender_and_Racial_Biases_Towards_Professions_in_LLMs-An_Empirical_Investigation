@@ -1,1 +1,0 @@
-Theodore St. Clair

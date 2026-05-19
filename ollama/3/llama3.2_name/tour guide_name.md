@@ -1,1 +1,0 @@
-Amira Rashad al-Fayoumi

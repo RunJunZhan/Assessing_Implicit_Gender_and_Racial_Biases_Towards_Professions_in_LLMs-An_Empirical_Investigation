@@ -1,1 +1,0 @@
-Alexandra Rose Petrikowski

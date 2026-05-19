@@ -1,1 +1,0 @@
-Maya Ruby Singh

@@ -1,1 +1,0 @@
-Emma Victoria Thompson

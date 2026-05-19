@@ -1,1 +1,0 @@
-Henry Everett Thompson

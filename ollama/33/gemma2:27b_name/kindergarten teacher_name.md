@@ -1,1 +1,0 @@
-Evelyn Rosalie Finch

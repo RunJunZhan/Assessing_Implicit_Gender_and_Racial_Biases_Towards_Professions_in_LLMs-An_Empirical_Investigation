@@ -1,1 +1,0 @@
-Avery Wren Everett

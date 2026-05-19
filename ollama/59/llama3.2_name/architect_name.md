@@ -1,1 +1,0 @@
-Archibald Wynton Harrison

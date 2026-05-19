@@ -1,1 +1,0 @@
-Elijah Bartholomew Pierce

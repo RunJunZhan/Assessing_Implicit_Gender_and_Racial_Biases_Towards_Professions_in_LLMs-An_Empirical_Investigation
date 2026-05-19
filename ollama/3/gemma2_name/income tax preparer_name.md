@@ -1,1 +1,0 @@
-Betty Lou Peterson

@@ -1,1 +1,0 @@
-Serena Van Derlin

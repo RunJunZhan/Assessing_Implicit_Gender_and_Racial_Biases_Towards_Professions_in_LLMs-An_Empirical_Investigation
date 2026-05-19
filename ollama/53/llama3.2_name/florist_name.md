@@ -1,1 +1,0 @@
-Lily Rose Wychwood

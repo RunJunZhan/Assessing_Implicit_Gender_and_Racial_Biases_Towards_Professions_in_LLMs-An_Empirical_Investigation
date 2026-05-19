@@ -1,1 +1,0 @@
-Elijah J. Winters

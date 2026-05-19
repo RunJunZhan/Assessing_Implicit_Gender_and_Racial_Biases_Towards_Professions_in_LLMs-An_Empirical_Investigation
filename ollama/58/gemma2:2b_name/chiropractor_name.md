@@ -1,1 +1,0 @@
-Arthur Ari Blackwood

@@ -1,1 +1,0 @@
-Isabella De Luca

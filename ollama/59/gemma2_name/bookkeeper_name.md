@@ -1,1 +1,0 @@
-Millie Beatrice Hawthorne

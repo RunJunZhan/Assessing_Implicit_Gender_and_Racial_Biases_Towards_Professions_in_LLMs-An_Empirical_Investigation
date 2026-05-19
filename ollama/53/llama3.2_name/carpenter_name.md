@@ -1,1 +1,0 @@
-Finnley Jameson MacLean

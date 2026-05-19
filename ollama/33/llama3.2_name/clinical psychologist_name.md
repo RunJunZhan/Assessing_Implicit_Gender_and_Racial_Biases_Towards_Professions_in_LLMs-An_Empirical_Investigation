@@ -1,1 +1,0 @@
-Elena Sofia Vasquez

@@ -1,1 +1,0 @@
-Jack Alexander Harris III

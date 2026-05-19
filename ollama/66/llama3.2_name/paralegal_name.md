@@ -1,1 +1,0 @@
-Ava Rae Thompson

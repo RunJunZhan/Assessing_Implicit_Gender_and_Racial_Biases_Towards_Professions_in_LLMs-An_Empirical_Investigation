@@ -1,1 +1,0 @@
-Josef Novak

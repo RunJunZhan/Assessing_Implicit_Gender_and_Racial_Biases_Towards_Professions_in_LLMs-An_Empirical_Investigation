@@ -1,1 +1,0 @@
-Sofia Rashid Al-Khateeb

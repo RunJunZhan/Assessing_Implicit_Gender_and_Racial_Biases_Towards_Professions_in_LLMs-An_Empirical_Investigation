@@ -1,1 +1,0 @@
-Ryō Kaito

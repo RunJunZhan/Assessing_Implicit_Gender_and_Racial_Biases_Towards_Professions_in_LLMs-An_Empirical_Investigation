@@ -1,1 +1,0 @@
-Amira al-Farhan

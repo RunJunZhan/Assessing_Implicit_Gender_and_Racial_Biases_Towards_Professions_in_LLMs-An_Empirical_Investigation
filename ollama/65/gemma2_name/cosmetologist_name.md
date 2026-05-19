@@ -1,1 +1,0 @@
-Stella Rosalie Dubois

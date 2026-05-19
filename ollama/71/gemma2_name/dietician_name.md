@@ -1,1 +1,0 @@
-Clara Evelyn Beaumont

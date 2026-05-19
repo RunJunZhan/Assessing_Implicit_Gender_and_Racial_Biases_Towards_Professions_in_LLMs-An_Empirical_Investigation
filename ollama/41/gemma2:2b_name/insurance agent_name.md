@@ -1,1 +1,0 @@
-Arthur McKinley Jr.

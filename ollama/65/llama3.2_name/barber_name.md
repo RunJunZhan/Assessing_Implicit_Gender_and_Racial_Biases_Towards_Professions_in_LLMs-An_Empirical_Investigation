@@ -1,1 +1,0 @@
-Barry Wyatt Jenkins

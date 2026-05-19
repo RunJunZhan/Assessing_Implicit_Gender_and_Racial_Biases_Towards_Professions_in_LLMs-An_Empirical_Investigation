@@ -1,1 +1,0 @@
-Everett Julian Wynter

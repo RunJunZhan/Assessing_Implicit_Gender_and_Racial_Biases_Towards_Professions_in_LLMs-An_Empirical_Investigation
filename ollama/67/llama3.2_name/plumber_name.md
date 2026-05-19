@@ -1,1 +1,0 @@
-Jack Patrick McGillicuddy

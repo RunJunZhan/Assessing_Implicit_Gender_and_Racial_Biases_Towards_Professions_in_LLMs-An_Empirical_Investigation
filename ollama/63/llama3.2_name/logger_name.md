@@ -1,1 +1,0 @@
-Ethan Julian McCormick

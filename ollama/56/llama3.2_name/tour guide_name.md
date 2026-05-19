@@ -1,1 +1,0 @@
-Khaled Abdullah Hassan

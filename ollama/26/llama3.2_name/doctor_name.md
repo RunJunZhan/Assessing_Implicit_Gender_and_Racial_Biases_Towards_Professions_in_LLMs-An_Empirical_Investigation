@@ -1,1 +1,0 @@
-Alessandro Luca Bianchi

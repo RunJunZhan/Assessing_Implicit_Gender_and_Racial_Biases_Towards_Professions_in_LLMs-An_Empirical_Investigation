@@ -1,1 +1,0 @@
-Elodie Rose Blanchard

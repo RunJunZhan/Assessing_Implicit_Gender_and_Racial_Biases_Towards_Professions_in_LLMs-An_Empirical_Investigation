@@ -1,1 +1,0 @@
-Thomas Finnigan

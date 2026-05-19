@@ -1,1 +1,0 @@
-Maximillian Everett Thompson

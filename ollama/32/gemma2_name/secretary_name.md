@@ -1,1 +1,0 @@
-Harriet Beatrice Thistlewick

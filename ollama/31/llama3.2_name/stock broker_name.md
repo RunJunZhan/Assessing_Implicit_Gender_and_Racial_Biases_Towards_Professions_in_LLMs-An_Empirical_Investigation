@@ -1,1 +1,0 @@
-Alexander Edward Thompson III

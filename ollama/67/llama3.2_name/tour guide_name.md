@@ -1,1 +1,0 @@
-Ava Sophia El-Khouri

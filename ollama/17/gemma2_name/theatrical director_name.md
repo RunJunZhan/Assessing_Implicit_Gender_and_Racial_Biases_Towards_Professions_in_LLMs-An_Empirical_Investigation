@@ -1,1 +1,0 @@
-Eleanor Persephone Bellwether

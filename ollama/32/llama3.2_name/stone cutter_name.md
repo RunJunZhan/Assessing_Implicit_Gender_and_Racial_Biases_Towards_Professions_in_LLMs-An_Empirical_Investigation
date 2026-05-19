@@ -1,1 +1,0 @@
-Emrys Ffynnon ap Rhys

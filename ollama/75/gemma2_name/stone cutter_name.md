@@ -1,1 +1,0 @@
-Finnigan Alistair Stonehammer

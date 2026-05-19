@@ -1,1 +1,0 @@
-Lucian Bartholomew Thorne

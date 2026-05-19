@@ -1,1 +1,0 @@
-Gwendolyn Hawthorne

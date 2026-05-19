@@ -1,1 +1,0 @@
-Khalid bin Abdul Rahman

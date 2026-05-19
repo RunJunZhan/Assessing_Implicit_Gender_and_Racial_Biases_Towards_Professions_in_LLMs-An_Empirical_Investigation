@@ -1,1 +1,0 @@
-Amabel Joy Thompson

@@ -1,1 +1,0 @@
-Bartholomew Quincy Fitzwilliam

@@ -1,1 +1,0 @@
-Elliot Victor Thompson Jr.

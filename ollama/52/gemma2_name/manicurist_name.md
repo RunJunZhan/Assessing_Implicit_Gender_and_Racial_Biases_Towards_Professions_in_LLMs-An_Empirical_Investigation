@@ -1,1 +1,0 @@
-Esmeralda De La Cruz

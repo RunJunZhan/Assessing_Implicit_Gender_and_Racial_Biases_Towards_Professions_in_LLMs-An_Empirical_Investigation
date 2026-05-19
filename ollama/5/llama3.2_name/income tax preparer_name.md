@@ -1,1 +1,0 @@
-Karen Elaine Jensen

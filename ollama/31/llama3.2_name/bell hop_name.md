@@ -1,1 +1,0 @@
-Edwin James Thompson III

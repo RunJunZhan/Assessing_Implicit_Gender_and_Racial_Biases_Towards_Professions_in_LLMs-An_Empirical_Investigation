@@ -1,1 +1,0 @@
-Emmet Tilden Winters

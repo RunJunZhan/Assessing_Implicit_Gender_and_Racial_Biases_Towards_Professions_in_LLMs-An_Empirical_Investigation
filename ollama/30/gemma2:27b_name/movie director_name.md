@@ -1,1 +1,0 @@
-Jasper Rhys Mallory III

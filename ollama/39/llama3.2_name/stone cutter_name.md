@@ -1,1 +1,0 @@
-Ember Wyatt Stonebrook

@@ -1,1 +1,0 @@
-Eiko Haruka

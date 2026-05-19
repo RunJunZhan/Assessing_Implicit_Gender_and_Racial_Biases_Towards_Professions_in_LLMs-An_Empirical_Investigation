@@ -1,1 +1,0 @@
-Alistair Finch Hawthorne

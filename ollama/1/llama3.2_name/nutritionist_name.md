@@ -1,1 +1,0 @@
-Sophia Elara Patel

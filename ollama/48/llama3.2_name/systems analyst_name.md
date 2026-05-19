@@ -1,1 +1,0 @@
-Sydnee Rae Thompson

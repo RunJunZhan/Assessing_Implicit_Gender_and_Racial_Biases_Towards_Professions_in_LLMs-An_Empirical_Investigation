@@ -1,1 +1,0 @@
-Elias Jasper Thornton

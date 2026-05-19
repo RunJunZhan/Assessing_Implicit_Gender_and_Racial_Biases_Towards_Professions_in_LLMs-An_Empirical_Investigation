@@ -1,1 +1,0 @@
-Jack Ryder Hawkins

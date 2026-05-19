@@ -1,1 +1,0 @@
-Esther Penelope Albright

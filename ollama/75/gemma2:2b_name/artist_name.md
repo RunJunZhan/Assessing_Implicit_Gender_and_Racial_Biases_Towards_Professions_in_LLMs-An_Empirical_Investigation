@@ -1,1 +1,0 @@
-Althea Thorne-Delacroix

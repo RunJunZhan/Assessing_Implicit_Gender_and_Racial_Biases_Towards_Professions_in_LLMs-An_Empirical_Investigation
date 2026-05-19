@@ -1,1 +1,0 @@
-Edwin Thaddeus Blackwood

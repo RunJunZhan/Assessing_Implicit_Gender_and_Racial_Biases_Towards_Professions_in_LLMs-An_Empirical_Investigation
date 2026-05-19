@@ -1,1 +1,0 @@
-Evelyn Marcella Wright

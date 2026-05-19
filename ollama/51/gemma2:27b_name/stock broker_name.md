@@ -1,1 +1,0 @@
-Bartholomew Ainsworth III

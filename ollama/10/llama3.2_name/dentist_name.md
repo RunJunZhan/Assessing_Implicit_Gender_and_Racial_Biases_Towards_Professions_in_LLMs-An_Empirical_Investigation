@@ -1,1 +1,0 @@
-Elena Alexandra Vasquez

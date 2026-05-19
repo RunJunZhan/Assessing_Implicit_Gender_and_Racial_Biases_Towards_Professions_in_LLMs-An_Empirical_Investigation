@@ -1,1 +1,0 @@
-Sofia Elizabeth Rodriguez

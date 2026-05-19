@@ -1,1 +1,0 @@
-Beatrice Lavender-Smith

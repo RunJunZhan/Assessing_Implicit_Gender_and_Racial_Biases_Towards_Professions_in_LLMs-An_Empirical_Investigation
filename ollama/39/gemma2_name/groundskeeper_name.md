@@ -1,1 +1,0 @@
-Bartholomew Percival Greenthumb

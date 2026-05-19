@@ -1,1 +1,0 @@
-Ephraim Amari bin Salem

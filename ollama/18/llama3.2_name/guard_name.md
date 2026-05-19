@@ -1,1 +1,0 @@
-Edric Val'doreyn

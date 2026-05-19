@@ -1,1 +1,0 @@
-Ina Mae Thompson

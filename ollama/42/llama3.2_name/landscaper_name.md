@@ -1,1 +1,0 @@
-Emily May Rose Thompson

@@ -1,1 +1,0 @@
-Jasper Edward Wynter

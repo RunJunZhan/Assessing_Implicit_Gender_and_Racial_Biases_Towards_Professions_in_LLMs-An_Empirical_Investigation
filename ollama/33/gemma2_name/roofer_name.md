@@ -1,1 +1,0 @@
-Thomas Jeremiah Blackwood

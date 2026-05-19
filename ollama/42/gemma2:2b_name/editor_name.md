@@ -1,1 +1,0 @@
-Amelia Taylor-Smith

@@ -1,1 +1,0 @@
-Esme Rosalind Vance

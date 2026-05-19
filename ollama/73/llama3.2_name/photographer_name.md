@@ -1,1 +1,0 @@
-Camilla Sophia Patel

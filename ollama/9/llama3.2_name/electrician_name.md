@@ -1,1 +1,0 @@
-Julian Everett Reed III

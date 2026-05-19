@@ -1,1 +1,0 @@
-Drusilla Anastasia Petrov

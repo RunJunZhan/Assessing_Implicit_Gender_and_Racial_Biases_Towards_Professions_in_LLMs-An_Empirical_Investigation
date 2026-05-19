@@ -1,1 +1,0 @@
-Akihiro Kenji Matsumoto

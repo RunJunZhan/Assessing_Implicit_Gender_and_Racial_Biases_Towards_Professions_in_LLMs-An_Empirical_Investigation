@@ -1,1 +1,0 @@
-Étienne Laurent-Fournier

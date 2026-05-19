@@ -1,1 +1,0 @@
-Alexandra Elizabeth Taylor

@@ -1,1 +1,0 @@
-Evelyn Jane Thompson

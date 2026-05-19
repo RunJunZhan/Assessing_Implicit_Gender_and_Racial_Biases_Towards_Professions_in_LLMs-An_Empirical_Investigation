@@ -1,1 +1,0 @@
-Beatrice Evangeline Thorne

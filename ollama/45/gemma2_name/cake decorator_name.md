@@ -1,1 +1,0 @@
-Seraphina Rose Hawthorne

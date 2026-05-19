@@ -1,1 +1,0 @@
-Harper Elizabeth Thompson

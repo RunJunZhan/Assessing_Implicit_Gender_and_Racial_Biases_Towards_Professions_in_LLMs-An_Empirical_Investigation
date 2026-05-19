@@ -1,1 +1,0 @@
-Jackley Edward McKinney

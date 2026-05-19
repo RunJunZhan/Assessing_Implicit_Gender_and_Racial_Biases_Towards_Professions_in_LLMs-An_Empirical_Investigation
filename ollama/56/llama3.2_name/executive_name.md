@@ -1,1 +1,0 @@
-Asher Reed Wynter

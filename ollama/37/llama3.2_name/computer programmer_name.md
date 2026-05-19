@@ -1,1 +1,0 @@
-Elianore Quentin Thompson

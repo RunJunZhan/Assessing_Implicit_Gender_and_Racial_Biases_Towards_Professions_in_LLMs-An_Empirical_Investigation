@@ -1,1 +1,0 @@
-Camilla Rose Thompson

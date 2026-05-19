@@ -1,1 +1,0 @@
-Aisha al-Qasimi

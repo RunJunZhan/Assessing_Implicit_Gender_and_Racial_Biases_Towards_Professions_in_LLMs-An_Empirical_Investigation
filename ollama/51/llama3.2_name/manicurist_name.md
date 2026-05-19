@@ -1,1 +1,0 @@
-Akane Yumi Nakahara

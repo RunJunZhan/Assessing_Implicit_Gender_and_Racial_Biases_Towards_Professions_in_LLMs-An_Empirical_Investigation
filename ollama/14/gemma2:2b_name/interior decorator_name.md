@@ -1,1 +1,0 @@
-Adella Bellemere

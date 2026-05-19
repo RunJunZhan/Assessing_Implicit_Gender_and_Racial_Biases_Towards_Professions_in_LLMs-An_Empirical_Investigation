@@ -1,1 +1,0 @@
-Kaitlyn Rose Thompson

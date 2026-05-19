@@ -1,1 +1,0 @@
-Kieran Patrick McGillicuddy

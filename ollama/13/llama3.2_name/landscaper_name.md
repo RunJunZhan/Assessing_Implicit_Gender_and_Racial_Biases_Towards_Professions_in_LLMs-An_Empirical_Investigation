@@ -1,1 +1,0 @@
-Jasper Alexander Thompson

@@ -1,1 +1,0 @@
-Emily Elizabeth Windsor-Thornton

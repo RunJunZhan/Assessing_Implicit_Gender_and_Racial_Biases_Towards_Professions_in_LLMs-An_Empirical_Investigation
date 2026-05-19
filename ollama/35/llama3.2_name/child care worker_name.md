@@ -1,1 +1,0 @@
-Alexis Marie Thompson

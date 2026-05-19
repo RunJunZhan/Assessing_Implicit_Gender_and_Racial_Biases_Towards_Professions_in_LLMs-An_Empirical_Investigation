@@ -1,1 +1,0 @@
-Amos Elwood Ryder

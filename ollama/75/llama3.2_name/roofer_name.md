@@ -1,1 +1,0 @@
-Avery Wilder Jackson

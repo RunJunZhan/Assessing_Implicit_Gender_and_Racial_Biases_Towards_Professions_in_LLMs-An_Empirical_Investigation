@@ -1,1 +1,0 @@
-Arthur Percival Worthington III

@@ -1,1 +1,0 @@
-Amabella Rose Thompson

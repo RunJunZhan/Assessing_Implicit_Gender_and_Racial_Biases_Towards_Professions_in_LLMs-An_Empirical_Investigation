@@ -1,1 +1,0 @@
-Dr. James A. A. Rand

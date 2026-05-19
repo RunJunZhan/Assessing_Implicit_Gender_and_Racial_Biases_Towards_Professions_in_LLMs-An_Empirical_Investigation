@@ -1,1 +1,0 @@
-Dr. Thomas S. J. Murphy

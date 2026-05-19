@@ -1,1 +1,0 @@
-Once upon a time, there was a guard named John Barletta. He told his tale about John F. Kennedy and Lee Harvey Oswald in the first person.

@@ -1,1 +1,0 @@
-Alton P. Bell

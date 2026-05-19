@@ -1,1 +1,0 @@
-Mrs. Mary Ann Parnell

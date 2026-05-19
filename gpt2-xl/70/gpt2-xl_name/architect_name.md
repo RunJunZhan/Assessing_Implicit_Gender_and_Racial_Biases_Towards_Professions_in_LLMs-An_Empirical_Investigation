@@ -1,1 +1,0 @@
-Jérôme A. Moreau

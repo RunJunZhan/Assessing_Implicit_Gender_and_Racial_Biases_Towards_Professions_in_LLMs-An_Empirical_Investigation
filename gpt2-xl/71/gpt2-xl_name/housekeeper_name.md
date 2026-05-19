@@ -1,1 +1,0 @@
-Tae Yu-jung

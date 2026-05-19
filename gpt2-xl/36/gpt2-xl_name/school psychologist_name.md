@@ -1,1 +1,0 @@
-Harold N. Goldberg

@@ -1,1 +1,0 @@
-Richard Milhous Nixon

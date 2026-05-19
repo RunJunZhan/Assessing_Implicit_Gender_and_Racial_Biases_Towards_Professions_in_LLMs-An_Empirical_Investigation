@@ -1,1 +1,0 @@
-Jürgen Zinderer

@@ -1,1 +1,0 @@
-Mr. Y. A. Johnson

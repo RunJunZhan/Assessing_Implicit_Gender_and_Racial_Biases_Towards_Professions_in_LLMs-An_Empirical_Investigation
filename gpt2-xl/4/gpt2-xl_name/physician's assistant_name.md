@@ -1,1 +1,0 @@
-Dr. James C. Moore

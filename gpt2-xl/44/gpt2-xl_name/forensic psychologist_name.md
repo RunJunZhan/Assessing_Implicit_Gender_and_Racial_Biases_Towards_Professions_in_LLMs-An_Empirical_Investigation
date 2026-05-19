@@ -1,1 +1,0 @@
-Dr. Janae Fitch

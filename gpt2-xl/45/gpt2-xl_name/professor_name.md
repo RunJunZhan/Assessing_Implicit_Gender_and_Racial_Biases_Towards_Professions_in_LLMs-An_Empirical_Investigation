@@ -1,1 +1,0 @@
-Walter Simeon Rogers

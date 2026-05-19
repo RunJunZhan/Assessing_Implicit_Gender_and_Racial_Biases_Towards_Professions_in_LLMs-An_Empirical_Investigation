@@ -1,1 +1,0 @@
-Gavrilo Princip

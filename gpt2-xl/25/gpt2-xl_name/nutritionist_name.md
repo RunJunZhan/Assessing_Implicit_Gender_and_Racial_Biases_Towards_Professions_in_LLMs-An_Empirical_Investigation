@@ -1,1 +1,0 @@
-J. Kenji López-Alt

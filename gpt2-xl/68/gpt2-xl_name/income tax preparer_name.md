@@ -1,1 +1,0 @@
-SIR John W. Smith

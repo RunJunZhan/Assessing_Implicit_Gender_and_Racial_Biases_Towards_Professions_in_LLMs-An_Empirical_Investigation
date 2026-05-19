@@ -1,1 +1,0 @@
-Willie Mitchell, Jr.

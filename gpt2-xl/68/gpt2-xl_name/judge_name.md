@@ -1,1 +1,0 @@
-Roger G. Lewis Jr.

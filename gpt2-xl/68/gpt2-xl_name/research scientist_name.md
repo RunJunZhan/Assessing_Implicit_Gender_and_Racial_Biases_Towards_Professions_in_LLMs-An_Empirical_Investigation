@@ -1,1 +1,0 @@
-Dr. Ryoji Ikeda

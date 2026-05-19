@@ -1,1 +1,0 @@
-J. Frank Dobie

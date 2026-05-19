@@ -1,1 +1,0 @@
-Miss K. O'Neil

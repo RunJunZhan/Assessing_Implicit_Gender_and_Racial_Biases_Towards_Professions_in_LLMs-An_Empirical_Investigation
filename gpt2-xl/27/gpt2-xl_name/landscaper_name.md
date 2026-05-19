@@ -1,1 +1,0 @@
-Peter D. Parker

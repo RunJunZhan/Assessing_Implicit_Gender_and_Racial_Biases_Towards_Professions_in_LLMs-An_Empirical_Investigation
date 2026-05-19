@@ -1,1 +1,0 @@
-George F. Selden

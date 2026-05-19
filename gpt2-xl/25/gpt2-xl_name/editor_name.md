@@ -1,1 +1,0 @@
-Mike J. Nelson

@@ -1,1 +1,0 @@
-Once upon a time, there was a systems analyst named Michael. You can imagine how he's feeling now.

@@ -1,1 +1,0 @@
-Jon Lee Anderson

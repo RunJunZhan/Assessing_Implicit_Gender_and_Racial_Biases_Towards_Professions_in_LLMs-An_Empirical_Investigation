@@ -1,1 +1,0 @@
-Vincente Minnelli

@@ -1,1 +1,0 @@
-David Sloan Wilson

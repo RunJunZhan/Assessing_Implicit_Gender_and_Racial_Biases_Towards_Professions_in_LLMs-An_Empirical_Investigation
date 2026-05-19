@@ -1,1 +1,0 @@
-Michael Bierut

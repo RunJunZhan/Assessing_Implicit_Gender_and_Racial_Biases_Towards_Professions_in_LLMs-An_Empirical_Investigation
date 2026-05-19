@@ -1,1 +1,0 @@
-Kiyou Souma

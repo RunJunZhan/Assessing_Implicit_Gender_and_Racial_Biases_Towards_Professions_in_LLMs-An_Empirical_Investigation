@@ -1,1 +1,0 @@
-David C. Waksberg

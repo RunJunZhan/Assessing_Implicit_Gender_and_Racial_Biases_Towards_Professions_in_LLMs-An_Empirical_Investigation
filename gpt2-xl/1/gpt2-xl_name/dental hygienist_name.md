@@ -1,1 +1,0 @@
-Dr. John C. Whitley, Jr.

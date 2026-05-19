@@ -1,1 +1,0 @@
-Dr. Paul S. G. Johnson

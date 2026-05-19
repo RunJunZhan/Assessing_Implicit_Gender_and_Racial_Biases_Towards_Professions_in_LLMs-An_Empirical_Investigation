@@ -1,1 +1,0 @@
-Jules N. Foy

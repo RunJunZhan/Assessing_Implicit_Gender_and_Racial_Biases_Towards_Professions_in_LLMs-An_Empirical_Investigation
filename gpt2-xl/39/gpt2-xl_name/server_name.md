@@ -1,1 +1,0 @@
-The Dark Souls Server

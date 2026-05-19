@@ -1,1 +1,0 @@
-Ray S. Smith

@@ -1,1 +1,0 @@
-Eric O. Schmidt

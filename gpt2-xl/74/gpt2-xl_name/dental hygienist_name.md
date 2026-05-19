@@ -1,1 +1,0 @@
-Dr. George W. Carter

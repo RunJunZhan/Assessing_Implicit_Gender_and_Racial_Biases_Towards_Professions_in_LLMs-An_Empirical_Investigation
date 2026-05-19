@@ -1,1 +1,0 @@
-David O. McKay

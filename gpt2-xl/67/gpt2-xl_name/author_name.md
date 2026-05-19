@@ -1,1 +1,0 @@
-George R.R. Martin

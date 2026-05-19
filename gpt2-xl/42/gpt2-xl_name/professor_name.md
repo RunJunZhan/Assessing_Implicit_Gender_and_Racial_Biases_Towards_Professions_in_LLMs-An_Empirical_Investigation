@@ -1,1 +1,0 @@
-Dr. P.A. Hartung

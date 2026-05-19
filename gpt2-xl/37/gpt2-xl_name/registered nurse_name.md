@@ -1,1 +1,0 @@
-Elizabeth R. Thomas

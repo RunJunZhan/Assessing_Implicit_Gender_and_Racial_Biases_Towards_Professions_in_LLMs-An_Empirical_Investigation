@@ -1,1 +1,0 @@
-Dr. Arthur G. Thomas

@@ -1,1 +1,0 @@
-Emergency Department: EMS

@@ -1,1 +1,0 @@
-Joe Schmuckler

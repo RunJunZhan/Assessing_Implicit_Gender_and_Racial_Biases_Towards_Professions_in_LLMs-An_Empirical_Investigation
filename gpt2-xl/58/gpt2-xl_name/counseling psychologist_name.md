@@ -1,1 +1,0 @@
-Dr. Charles J. Groff

@@ -1,1 +1,0 @@
-Sami Al Otaiba

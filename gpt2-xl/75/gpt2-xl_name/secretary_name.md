@@ -1,1 +1,0 @@
-Mrs Wernher von Braun

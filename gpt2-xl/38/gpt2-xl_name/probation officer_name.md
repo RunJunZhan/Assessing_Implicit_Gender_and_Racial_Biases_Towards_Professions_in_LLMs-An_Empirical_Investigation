@@ -1,1 +1,0 @@
-Kevin M. Lappen

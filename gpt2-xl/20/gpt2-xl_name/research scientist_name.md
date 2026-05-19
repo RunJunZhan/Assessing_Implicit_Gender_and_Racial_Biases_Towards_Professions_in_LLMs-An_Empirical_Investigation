@@ -1,1 +1,0 @@
-John Archibald Wheeler

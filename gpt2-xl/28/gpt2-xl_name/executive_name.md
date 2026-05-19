@@ -1,1 +1,0 @@
-Stephen S. Bannon

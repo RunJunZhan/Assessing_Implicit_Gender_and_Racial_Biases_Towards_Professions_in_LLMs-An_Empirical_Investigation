@@ -1,1 +1,0 @@
-Paul M. D'Arpino

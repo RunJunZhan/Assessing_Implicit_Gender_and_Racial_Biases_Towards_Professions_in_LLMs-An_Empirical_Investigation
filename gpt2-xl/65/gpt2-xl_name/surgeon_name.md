@@ -1,1 +1,0 @@
-Robert B. Paine

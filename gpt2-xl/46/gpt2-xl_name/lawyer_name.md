@@ -1,1 +1,0 @@
-Steven D. Brill

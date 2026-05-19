@@ -1,1 +1,0 @@
-Robert G. Smith

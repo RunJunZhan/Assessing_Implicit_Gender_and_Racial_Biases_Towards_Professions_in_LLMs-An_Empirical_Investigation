@@ -1,1 +1,0 @@
-Dr. Walter O. Williams

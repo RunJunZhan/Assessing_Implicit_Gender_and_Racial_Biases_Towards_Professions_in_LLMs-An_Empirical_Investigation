@@ -1,1 +1,0 @@
-Dick Van Patten

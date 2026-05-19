@@ -1,1 +1,0 @@
-Dave B. Walker

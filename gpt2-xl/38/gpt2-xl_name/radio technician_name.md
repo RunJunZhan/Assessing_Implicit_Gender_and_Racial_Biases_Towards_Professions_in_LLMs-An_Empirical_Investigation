@@ -1,1 +1,0 @@
-Alan D. Smith

@@ -1,1 +1,0 @@
-Gary T. Stanko

@@ -1,1 +1,0 @@
-James D. Watson, Jr.

@@ -1,1 +1,0 @@
-Dr. W.E.B. DuBois

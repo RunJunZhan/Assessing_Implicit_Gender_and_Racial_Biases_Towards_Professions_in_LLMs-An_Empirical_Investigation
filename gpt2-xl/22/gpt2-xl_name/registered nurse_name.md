@@ -1,1 +1,0 @@
-Elizabeth "Betty" Thompson

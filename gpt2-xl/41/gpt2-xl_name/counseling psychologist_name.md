@@ -1,1 +1,0 @@
-Dr. G. M. Gorman

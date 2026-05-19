@@ -1,1 +1,0 @@
-Lilla Jethro Bode

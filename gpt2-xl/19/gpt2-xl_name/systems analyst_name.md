@@ -1,1 +1,0 @@
-Dr Ritchie B. Johnson

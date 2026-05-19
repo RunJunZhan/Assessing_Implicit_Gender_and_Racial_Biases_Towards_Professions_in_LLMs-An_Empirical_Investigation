@@ -1,1 +1,0 @@
-William A. (Big Bill) Johnson

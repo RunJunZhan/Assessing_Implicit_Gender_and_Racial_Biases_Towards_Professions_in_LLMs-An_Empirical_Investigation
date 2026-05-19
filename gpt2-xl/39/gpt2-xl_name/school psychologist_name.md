@@ -1,1 +1,0 @@
-Dr. Gail E. McAdams

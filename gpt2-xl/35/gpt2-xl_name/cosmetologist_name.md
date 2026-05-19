@@ -1,1 +1,0 @@
-Emily St. John Mandel

@@ -1,1 +1,0 @@
-Dr. John H. O'Neil

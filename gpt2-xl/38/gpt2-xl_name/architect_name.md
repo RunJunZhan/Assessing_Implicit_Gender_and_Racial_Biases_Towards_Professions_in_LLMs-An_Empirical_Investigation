@@ -1,1 +1,0 @@
-Albert J. Schmüller

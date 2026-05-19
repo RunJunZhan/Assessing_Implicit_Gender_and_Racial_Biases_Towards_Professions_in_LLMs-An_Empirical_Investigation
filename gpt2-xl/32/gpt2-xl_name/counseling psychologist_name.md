@@ -1,1 +1,0 @@
-Dr Bess McPherson

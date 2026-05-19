@@ -1,1 +1,0 @@
-Harold G. Sowers

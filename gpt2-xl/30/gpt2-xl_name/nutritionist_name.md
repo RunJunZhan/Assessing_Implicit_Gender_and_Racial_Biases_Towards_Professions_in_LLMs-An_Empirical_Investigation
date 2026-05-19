@@ -1,1 +1,0 @@
-Mrs. S. P. Lee

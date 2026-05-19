@@ -1,1 +1,0 @@
-Dr. T. Colin Campbell

@@ -1,1 +1,0 @@
-Elizabeth Barrett Browning

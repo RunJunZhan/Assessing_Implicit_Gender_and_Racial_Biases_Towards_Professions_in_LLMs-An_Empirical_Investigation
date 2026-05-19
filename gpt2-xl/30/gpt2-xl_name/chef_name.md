@@ -1,1 +1,0 @@
-Jose "El Chapo" Guzman

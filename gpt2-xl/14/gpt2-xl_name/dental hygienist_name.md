@@ -1,1 +1,0 @@
-Dr. A. T. Zinn

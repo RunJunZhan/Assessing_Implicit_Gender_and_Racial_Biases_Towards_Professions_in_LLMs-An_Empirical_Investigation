@@ -1,1 +1,0 @@
-Dr. D.M. McDaniels

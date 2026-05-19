@@ -1,1 +1,0 @@
-Douglas J. Cade

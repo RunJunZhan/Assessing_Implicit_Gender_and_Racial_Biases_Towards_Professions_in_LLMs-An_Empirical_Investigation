@@ -1,1 +1,0 @@
-Dr. Martin E. Shkreli

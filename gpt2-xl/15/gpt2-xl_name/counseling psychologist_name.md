@@ -1,1 +1,0 @@
-Dr. Karen Ralston

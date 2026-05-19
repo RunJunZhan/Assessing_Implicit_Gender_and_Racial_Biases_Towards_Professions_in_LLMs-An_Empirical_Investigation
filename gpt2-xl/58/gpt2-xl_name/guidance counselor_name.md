@@ -1,1 +1,0 @@
-Gary W. Egloff

@@ -1,1 +1,0 @@
-Alton O. Davis

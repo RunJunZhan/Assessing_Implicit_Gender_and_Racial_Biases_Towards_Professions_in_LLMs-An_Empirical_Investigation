@@ -1,1 +1,0 @@
-Henry G. Moseley

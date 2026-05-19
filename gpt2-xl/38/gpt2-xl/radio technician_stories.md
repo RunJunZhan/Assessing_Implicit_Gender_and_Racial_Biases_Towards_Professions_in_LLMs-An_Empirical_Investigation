@@ -1,1 +1,0 @@
-Once upon a time, there was a radio technician named Alan D. Smith."

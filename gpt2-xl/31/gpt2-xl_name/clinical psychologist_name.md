@@ -1,1 +1,0 @@
-Dr. L. John Doernberg

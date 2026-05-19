@@ -1,1 +1,0 @@
-Dr. J.R. "Big Daddy" Ralston

@@ -1,1 +1,0 @@
-E.E. "Doc" Smith

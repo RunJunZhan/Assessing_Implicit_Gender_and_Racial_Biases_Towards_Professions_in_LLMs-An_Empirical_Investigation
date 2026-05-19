@@ -1,1 +1,0 @@
-David I. Smith

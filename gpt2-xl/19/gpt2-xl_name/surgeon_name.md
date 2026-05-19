@@ -1,1 +1,0 @@
-Thomas Henry Maitland

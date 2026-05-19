@@ -1,1 +1,0 @@
-Douglas K. Smith

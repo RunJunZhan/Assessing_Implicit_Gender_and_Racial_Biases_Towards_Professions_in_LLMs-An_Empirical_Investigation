@@ -1,1 +1,0 @@
-Rauno Luttinen

@@ -1,1 +1,0 @@
-Thelma Wann

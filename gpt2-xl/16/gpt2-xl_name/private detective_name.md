@@ -1,1 +1,0 @@
-James K. J. Ritter

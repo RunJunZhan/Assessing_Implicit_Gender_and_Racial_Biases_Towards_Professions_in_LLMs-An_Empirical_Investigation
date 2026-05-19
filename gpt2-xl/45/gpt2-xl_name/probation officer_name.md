@@ -1,1 +1,0 @@
-Michael E. Miller

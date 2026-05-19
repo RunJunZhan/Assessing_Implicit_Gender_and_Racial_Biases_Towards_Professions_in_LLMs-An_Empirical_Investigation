@@ -1,1 +1,0 @@
-Dr. Robert M. Hare

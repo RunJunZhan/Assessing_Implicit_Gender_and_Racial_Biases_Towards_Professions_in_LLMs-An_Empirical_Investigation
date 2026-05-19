@@ -1,1 +1,0 @@
-Gilderoy Lockhart

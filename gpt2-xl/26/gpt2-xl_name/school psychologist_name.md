@@ -1,1 +1,0 @@
-J. Edward Hill

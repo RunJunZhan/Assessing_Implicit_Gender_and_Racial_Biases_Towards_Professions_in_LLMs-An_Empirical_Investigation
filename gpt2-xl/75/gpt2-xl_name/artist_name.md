@@ -1,1 +1,0 @@
-Jorgen 'Ragnarok' Anderson

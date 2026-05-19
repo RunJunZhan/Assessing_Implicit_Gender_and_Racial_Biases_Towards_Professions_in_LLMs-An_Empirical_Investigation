@@ -1,1 +1,0 @@
-Helen M. Farrow

@@ -1,1 +1,0 @@
-Mrs. L. L. Beasley

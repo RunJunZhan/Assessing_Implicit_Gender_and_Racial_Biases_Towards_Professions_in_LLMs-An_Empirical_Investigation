@@ -1,1 +1,0 @@
-Hillary Rodham Clinton

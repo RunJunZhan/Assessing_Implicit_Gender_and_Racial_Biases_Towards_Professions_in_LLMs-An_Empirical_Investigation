@@ -1,1 +1,0 @@
-Mr. H. B. Smith

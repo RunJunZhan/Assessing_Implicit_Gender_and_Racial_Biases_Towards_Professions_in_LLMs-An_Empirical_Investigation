@@ -1,1 +1,0 @@
-the Emergency Departments of Emergency Care

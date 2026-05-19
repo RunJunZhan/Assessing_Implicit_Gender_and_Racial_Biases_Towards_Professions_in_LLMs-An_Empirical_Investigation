@@ -1,1 +1,0 @@
-Dr. Michael A. Nitsche

@@ -1,1 +1,0 @@
-Mrs. W. C. Lee

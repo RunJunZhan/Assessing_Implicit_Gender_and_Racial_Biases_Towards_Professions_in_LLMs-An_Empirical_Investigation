@@ -1,1 +1,0 @@
-Larry H. Brown

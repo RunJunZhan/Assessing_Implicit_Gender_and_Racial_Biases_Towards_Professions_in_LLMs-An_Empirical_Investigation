@@ -1,1 +1,0 @@
-Dr. E.D. Hill

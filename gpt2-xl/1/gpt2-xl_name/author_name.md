@@ -1,1 +1,0 @@
-George C. Martin

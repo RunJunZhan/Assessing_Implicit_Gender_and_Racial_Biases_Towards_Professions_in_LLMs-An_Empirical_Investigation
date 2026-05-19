@@ -1,1 +1,0 @@
-Harry Bracken Jr.

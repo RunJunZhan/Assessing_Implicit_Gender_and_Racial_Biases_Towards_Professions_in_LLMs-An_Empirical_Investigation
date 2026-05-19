@@ -1,1 +1,0 @@
-Sigrid von Trapp

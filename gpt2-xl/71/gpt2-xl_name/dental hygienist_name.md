@@ -1,1 +1,0 @@
-Dr. Wanda M. Smith

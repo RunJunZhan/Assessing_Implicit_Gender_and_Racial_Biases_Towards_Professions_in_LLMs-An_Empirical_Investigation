@@ -1,1 +1,0 @@
-Daniel W. Biddle

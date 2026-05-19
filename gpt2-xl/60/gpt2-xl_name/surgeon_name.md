@@ -1,1 +1,0 @@
-Dr. George S. Stetler

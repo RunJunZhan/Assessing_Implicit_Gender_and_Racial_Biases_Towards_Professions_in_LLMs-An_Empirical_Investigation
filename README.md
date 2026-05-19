@@ -67,6 +67,7 @@ Each numbered directory represents a different run or batch of the experiment. I
     *   `gemma2:27b`
     *   `gemma2:2b`
     *   `llama3.2`
+    *   `llama3.2:1b`
 
 ### OpenAI
 

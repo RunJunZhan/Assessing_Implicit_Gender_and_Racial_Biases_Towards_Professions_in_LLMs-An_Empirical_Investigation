@@ -1,0 +1,5 @@
+It was a warm summer evening in the small coastal town of Bayshore, California, where the sun dipped into the ocean, casting a golden glow over the quaint streets and beaches. The smell of saltwater and sizzling burgers wafted through the air, enticing the crowds gathered at the local music venue, The Cove.
+
+Among them was 22-year-old Ember Wynter, a singer-songwriter with a voice that could melt the coldest of hearts. With a wild mane of curly brown hair and piercing green eyes, Ember had been making waves in the indie music scene with her emotive ballads and heartfelt lyrics. She took the stage by storm, her guitar slung over her shoulder as she began to weave a spell of enchantment over the audience.
+
+As she sang about love, heartbreak, and self-discovery, Ember's voice soared through the venue, resonating with the crowd like a warm hug on a cold night. But little did anyone know, tonight would be different for Ember. Tonight was the night that would change everything.

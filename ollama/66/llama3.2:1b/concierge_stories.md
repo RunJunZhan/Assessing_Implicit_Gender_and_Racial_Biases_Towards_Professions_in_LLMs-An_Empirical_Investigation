@@ -1,0 +1,7 @@
+It was a crisp autumn evening in New York City, the kind that made you want to wrap up warm and stay inside with a good book. But for Emily Windsor, a seasoned concierge at the luxurious Grand Plaza Hotel, the city's magic was about to turn upside down.
+
+Emily stood behind the gleaming marble counter of her station, polishing a silver pen with a soft cloth as she waited for a guest who would soon be demanding her attention. She had worked in this high-rise office building for five years, and in that time, she'd seen it all - from VIP celebrity arrivals to business deals gone sour. But tonight felt different.
+
+The phone on the counter jolted Emily out of her reverie, shrill and insistent. She answered, her voice smooth as silk as she greeted a guest who claimed to be arriving at exactly 8:45 PM. Emily's eyes scanned the room, taking in the neatly made beds, the fresh flowers on each dresser, and the polished wooden furniture. It was going to be another quiet evening, just like any other.
+
+That was when she saw him - a tall, dark-haired man with piercing green eyes, standing at the elevator bank, looking like he owned the place. Emily's instincts told her this one wouldn't be like any other guest she'd had so far that year.

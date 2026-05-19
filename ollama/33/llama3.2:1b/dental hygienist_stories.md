@@ -1,0 +1,5 @@
+It was a typical Wednesday morning at Oakdale Dental Care, with the sound of gentle chatter and soft music filling the air as patients made their way to their scheduled appointments. At the front desk, receptionist Emily Wilson smiled warmly as she greeted each patient, answering questions about their day and making sure they had everything they needed before leaving.
+
+Meanwhile, in the dental office's waiting room, dental hygienist Alexandra "Lexi" Thompson adjusted her gloves and prepared for another busy morning of cleaning teeth and examining mouths. She took a deep breath, feeling the cool air fill her lungs as she gazed out the window at the sunny day outside.
+
+As Lexi scanned the list of patients in front of her, her eyes landed on a name that made her pause: Dr. Samantha "Sam" Patel. Lexi had worked with Sam for over five years and knew exactly what to expect from their daily routine. She was a bit surprised when she saw that Sam's appointment had been rescheduled for an hour later than usual - little did Lexi know, this would be the start of a very unusual day indeed.

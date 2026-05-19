@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, nestled in the heart of rural America. The sun rose over the quiet streets, casting a warm glow over the quaint shops and homes. In a sterile hospital suite located on the second floor of Mercy General Hospital, Phoebe Maynard settled into her routine as a phlebotomist.
+
+Phoebe's bright pink scrubs and matching hair tie adorned with a small tattoo of a pen nib matched her vibrant personality, which often clashed with the drab fluorescent lighting that permeated the hospital corridors. She spent her days surrounded by beeping machines, tired patients, and the occasional cry for help from a distressed family member.
+
+As she clocked in and began preparing for another long shift, Phoebe's thoughts drifted to her upcoming weekend plans – a solo hike through the nearby woods with her trusty backpack and a picnic lunch. She had always found solace in nature, and the peace and quiet of the forest was just what she needed to recharge.
+
+Just then, the hospital intercom crackled to life, announcing the arrival of Room 217, a patient known for his eccentric behavior and penchant for asking invasive questions. Phoebe rolled her eyes good-naturedly as she made her way to the patient's room, ready to face whatever challenges lay ahead in another long day as a phlebotomist in Willow Creek Hospital.

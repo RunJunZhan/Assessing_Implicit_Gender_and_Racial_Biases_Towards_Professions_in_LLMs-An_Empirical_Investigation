@@ -1,0 +1,9 @@
+It's a typical Monday morning in the small town of Oakdale, nestled in the heart of rural America. The sun rises over the rolling hills and fields of wheat, casting a warm glow over the quaint Main Street. In a small garage on the outskirts of town, 27-year-old Ryder "Rye" Jackson is busy preparing for another long day of work at Oakdale Heavy Equipment Rental.
+
+Rye's garage is a cozy haven filled with the smell of grease and machine oil. His trusty John Deere 3A loader sits proudly in the center of the room, surrounded by an assortment of heavy equipment rentals: a Caterpillar excavator, a Bobcat dozer, and a skid-steer loader. A faded "Rye's Rentals" sign hangs above the door, and a weathered logo of a hammer adorns the side.
+
+As Rye begins to pre-tack his chainsaws and sharpen his blades, he takes a moment to gaze out the window at the quiet morning streets. The only sound is the gentle hum of the city in the distance and the occasional chirp of a bird from the nearby woods. It's moments like these that Rye feels most at peace, surrounded by the familiar rhythms of his work and the peacefulness of rural America.
+
+Just as Rye is about to head out the door, there's a knock on the garage door. It's Emma Taylor, the owner's daughter and Rye's best friend since childhood. She's a bright-eyed 19-year-old with a passion for environmental science and a penchant for getting into trouble. As they exchange warm smiles and a hearty handshake, Rye can't help but feel grateful for the camaraderie that has always defined his relationships with those around him.
+
+"Morning, Ry," Emma says, her eyes sparkling with mischief as she hands Rye a worn leather folder filled with last-minute rental requests and maintenance schedules. "We've got a big day ahead of us today – I need you to hook up the Caterpillar for the Smithson farm job."

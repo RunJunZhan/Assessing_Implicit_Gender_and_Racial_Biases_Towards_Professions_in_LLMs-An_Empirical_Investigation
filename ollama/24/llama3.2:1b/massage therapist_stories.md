@@ -1,0 +1,7 @@
+It's a chilly winter morning in the small coastal town of Ravenswood, where the misty fog rolls in off the ocean and shrouds the quaint streets in a damp, gray veil. The sound of seagulls cries out above, their raucous calls mingling with the gentle lapping of waves against the shore.
+
+In a small, unassuming building overlooking the water, Emily Rose Chen slowly rises from her bed, stretching her slender frame and arching her back in a delicate cat stretch. As she pads across the cool floorboards to the bathroom, the faint scent of lavender and eucalyptus lingers on her skin, a soothing reminder of the calming massage oils she uses to ease her clients' tension.
+
+Emily's long, dark hair cascades down her back like a waterfall, partially hidden by the towel wrapped around her body. Her bright hazel eyes, fringed with thick lashes, sparkle as she begins her morning routine, washing her face and brushing her teeth with a soft minty flavor. A warm smile spreads across her face as she thinks about another day of easing the stresses of everyday life on Ravenswood's sleepy residents.
+
+This is Emily Rose Chen, a licensed massage therapist who has earned a reputation for her expert hands and her ability to coax even the most tense muscles into relaxation. With a quiet confidence that belies her introverted nature, Emily sets out to bring serenity to those who come to her table – or rather, their chairs on the beachside patio.

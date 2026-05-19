@@ -1,0 +1,7 @@
+It was a typical Wednesday evening at the local convenience store, "Eddie's Elixirs." The fluorescent lights overhead cast a sterile glow over the crowded aisles, where the sounds of murmured conversations and clinking cans filled the air. Behind the counter, 22-year-old Jesse Lee stood with her feet shoulder-width apart, her dark hair tied back in a messy ponytail, and a warm smile plastered on her face as she rang up the evening's transactions.
+
+Jesse had been working at Eddie's Elixirs for three years, since she was a student at local community college. She had always loved the convenience store culture – the familiarity of the same routine day in and day out, the satisfaction of making small talk with regular customers, and the peace and quiet that came with being tucked away in the back corner of town.
+
+As the evening wore on, Jesse's coworkers began to filter out, some heading home for dinner, while others lingered behind, chatting and laughing over coffee and cigarettes. The store was closing in an hour, and Jesse took a moment to restock the shelves, smoothing out wrinkles in her apron as she worked.
+
+It was then that the door swung open, and a tall, lanky man with a charming smile sauntered into the store, his bright blue eyes scanning the aisles until they landed on Jesse. He nodded in greeting, his voice low and smooth as he said, "Hey, Jess... I'll take all your essentials."

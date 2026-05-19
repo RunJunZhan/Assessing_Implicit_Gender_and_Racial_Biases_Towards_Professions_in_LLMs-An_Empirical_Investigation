@@ -1,0 +1,7 @@
+It was a warm summer morning in the small coastal town of Tidestone, where the scent of saltwater and freshly brewed coffee wafted through the air, enticing the sleepy residents to start their day. The sun was just beginning to rise over the horizon, casting a golden glow over the quaint streets and colorful buildings.
+
+At the heart of Tidestone's Main Street stood the iconic Blue Horizon Beachfront Resort, its vibrant blue walls and bright yellow awnings beckoning visitors from afar. Inside, tour guide extraordinaire Alexandra "Lexi" Thompson was prepping for another busy day of exploring the town's hidden gems with her group of enthusiastic tourists.
+
+Lexi had lived in Tidestone all her life, growing up as a child of a local fisherman and learning the secrets of the ocean from her father. She took pride in sharing these stories with visitors, making them feel like they were experiencing the town firsthand. With her bright blue eyes, curly brown hair, and infectious smile, Lexi had become an integral part of Tidestone's identity.
+
+As she sipped her coffee and reviewed the day's itinerary on her tablet, Lexi mentally prepared for the influx of tourists arriving soon to soak up the sun, play in the waves, or simply bask in the laid-back atmosphere. Little did she know that this particular group would be particularly interested in exploring the town's lesser-known side, as they had heard whispers about a hidden cove not far from here...

@@ -1,0 +1,7 @@
+It was a typical Monday morning in the small town of Oakdale, where 27-year-old Jimmy "Jimmy B" Jenkins had spent his entire life working as a janitor at the local elementary school. The sun was shining down on the quiet streets, casting a warm glow over the rows of oak trees and the sleepy town square. A light mist rose from the cracked sidewalks, suggesting a crisp morning that would only bring promise to the sleepy town.
+
+Jimmy stood in his worn janitor's coat, boots scuffed and faded, gazing out at the sea of smiling faces as they filed into school for another new year. His long, dark hair was mussed, and his eyes were bloodshot from lack of sleep, but he didn't care. This was just another day on the job, another chance to make a difference in the lives of these children.
+
+As he began his rounds, Jimmy's thoughts turned to the upcoming school year, and all the familiar routines that came with it: the smell of freshly sharpened pencils, the sound of chatter as students settled into their morning seats, and the faint hum of the air conditioning on a sweltering summer day. He knew every inch of this school, every nook and cranny, and he took pride in keeping it spotless for his colleagues – and for the children who called it home.
+
+But little did Jimmy know, today would be different.

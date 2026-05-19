@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small coastal town of Tidal Cove, where the sun rose over the waves casting a golden glow on the quaint streets and buildings. The air was filled with the sweet scent of saltwater taffy and the sound of seagulls crying as they rode the wind currents above the bustling pier.
+
+Ava Moreno stood at the edge of the pier, her bright pink yoga pants a stark contrast to the drab, beige athletic wear she had worn for the past few months. She took a deep breath, feeling the salty air fill her lungs, and gazed out at the ocean. It was moments like these that reminded her why she became an exercise instructor in the first place – to connect with people, to challenge them, and to inspire them to reach their full potential.
+
+Ava's small studio, "Swell Fitness," was nestled on Main Street, its colorful exterior a vibrant reflection of the town's lively spirit. She took pride in her ability to create a safe and supportive environment for all students, from the most timid beginners to the most experienced athletes. Her clients adored her no-nonsense approach and infectious enthusiasm, which had quickly earned her a reputation as one of Tidal Cove's top instructors.
+
+As she began to lead her morning class, "Rebel Waves," Ava couldn't help but feel a sense of excitement and anticipation for the day ahead. It was going to be another perfect day in Tidal Cove, full of sunshine, sweat, and maybe even a few unexpected spills – but that was all part of the fun, right?

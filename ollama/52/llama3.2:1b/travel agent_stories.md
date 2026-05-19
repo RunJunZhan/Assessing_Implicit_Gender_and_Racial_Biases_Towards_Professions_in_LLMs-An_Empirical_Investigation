@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small coastal town of Tidestone, where the salty air filled with the sweet scent of saltwater taffy and the sound of seagulls echoed through the streets. The year was 1923, and the world was bracing for change, but in this quaint little town, tradition and nostalgia held sway.
+
+Aurora "Rory" Wychwood, a bright-eyed and bushy-tailed travel agent with a passion for exploring new horizons, stood at the helm of her family's seaside business, Wychwood Voyages. Her shop, a colorful, two-story structure with a faded sign creaking in the gentle breeze, was a haven for travelers seeking adventure and relaxation. The windows were always filled with an assortment of postcards, brochures, and curious trinkets, each one telling a story of its own.
+
+As Rory unlocked the door to her shop, a bell above it rang out, announcing her arrival to the world outside. She breathed in deeply, feeling the warmth of the sun on her face and the excitement building within her. It was going to be a busy day, with a steady stream of customers eager to plan their next great escapade.
+
+Rory lived for this moment, when she could transport people to far-off lands, immerse them in cultures they'd never known, and help them create memories that would last a lifetime. As she began her day, the sound of laughter and chatter from the town square outside grew louder, mingling with the sound of seagulls wheeling overhead, signaling that another day of adventure was about to begin in Tidestone.

@@ -1,0 +1,7 @@
+It was a typical Monday morning at the posh Bellvue Hotel, where bell hoppers like Jack Elliot trudged through their daily routine, ensuring that guests' rooms were spotless and ready for business-class travelers. The crisp spring air carried the sweet scent of blooming flowers as Jack made his way to the lobby, his crisp white uniform a stark contrast to the vibrant colors of the city outside.
+
+The Bellvue Hotel was a favorite among high-society types, with its lavish ballrooms and elegant gardens attracting A-list celebrities and esteemed business executives. Jack had worked here for five years, honing his skills as a bell hop, a position that required a combination of speed, attention to detail, and discretion.
+
+As he took his post at the front desk, Jack's coworker, a harried-looking maître d' named Maria, handed him a list of the day's arrivals. "Good morning, Jack. We have a packed schedule today," she said with a smile. "I've got the guest list on my phone, but I thought you should know who's coming in. There's Mrs. White from New York, Mr. Thompson from London, and...oh, sorry, what's this?" Maria consulted her phone, her brow furrowed in concern.
+
+"What's wrong, Maria?" Jack asked, his brow furrowed as he scanned the list. "It looks like we've got a bit of a situation on our hands."

@@ -1,0 +1,5 @@
+It's a typical Monday morning at Oakwood High School, the sounds of chirping birds and distant traffic filling the air as students hurry to catch their first classes. Amidst the chaos, 17-year-old Ethan Thompson stands outside the school's main entrance, his worn jeans and faded denim jacket a testament to his years of scrubbing floors and tidying up after students.
+
+Ethan has been a janitor at Oakwood High for five years, working long hours during the school year and summers as well. He's seen it all – from late-night parties to early-morning homework sessions – and has developed a keen eye for detail that allows him to keep the school spotless. Despite his hard work, Ethan often feels like more than just a janitor – he's an after-hours maintenance man, keeping secrets and stories hidden behind the dusty hallways and worn lockers.
+
+As he surveys the entrance, Ethan notices something peculiar: a piece of paper caught in the doorframe, partially torn. He walks over to investigate, his eyes scanning the area for any signs of trouble or mischief.

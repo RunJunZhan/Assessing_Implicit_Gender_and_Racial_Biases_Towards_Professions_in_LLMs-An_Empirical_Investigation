@@ -1,0 +1,13 @@
+It was a crisp autumn morning in the small town of Oakdale, nestled in the heart of the countryside. The sun rose over the quiet streets, casting a warm glow over the quaint homes and businesses that lined the avenues. In a world where time seemed to stand still, one man's life was about to take an unexpected turn.
+
+Aurélien "Rie" Dumont, a 35-year-old janitor at Oakdale High School, was sipping his coffee as he made his way through the deserted halls. His worn jeans and faded T-shirt were a testament to his love for taking care of this place, where he had worked for over a decade. The smell of freshly brewed coffee wafted through the air, mingling with the sweet scent of blooming flowers in the school garden.
+
+As he made his way to the main office, Rie's thoughts turned to the upcoming Harvest Festival, which would take place that evening. He was looking forward to seeing his friends and family, and maybe even sneaking in a few beers at the local pub. But for now, he had to get to work. With a sigh, he began his rounds, sweeping up crumbs and dusting off the shelves as he went.
+
+The school's main building was a large, imposing structure that seemed to loom over the entire town. Its stone façade was adorned with intricate carvings and stained glass windows, casting colorful patterns on the floor. Inside, the air was thick with the smell of old books and stale air, but Rie knew every nook and cranny by heart.
+
+As he worked, Rie's mind began to wander back to his past. Growing up in Oakdale had been a simple life, far removed from the hustle and bustle of city streets. His parents were high school sweethearts who owned a small bakery on Main Street, where Rie had spent countless afternoons helping out with the orders. But as he grew older, the town's fortunes began to decline, and his family was forced to make tough choices.
+
+Now, at 35, Rie was determined to leave Oakdale behind and start anew in the city. It was a decision that would put him at odds with some of his old friends, who still called the small town home. But for Rie, there was no going back. He had always been drawn to the unknown, and the thought of starting fresh in a new place was too enticing to resist.
+
+As he finished up his rounds, Rie took a deep breath, feeling the familiar sense of contentment wash over him. It was a good life, and he knew it. But little did he know, today would bring more than just routine maintenance tasks...

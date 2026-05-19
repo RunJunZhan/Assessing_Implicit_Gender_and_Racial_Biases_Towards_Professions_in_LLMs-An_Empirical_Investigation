@@ -1,0 +1,7 @@
+It was a crisp autumn evening in the small town of Willow Creek, nestled deep within the heart of rural Virginia. The sun had long since dipped below the horizon, casting a warm orange glow over the quaint streets and homes. In a small, cluttered garage on Elm Street, 28-year-old radio technician, Alexandra "Lexi" Thompson, hunched over her workbench, tinkering with the latest issue of the local news broadcast.
+
+Lexi's eyes, a deep shade of brown that seemed to hold a world of wisdom, gazed intently at the screens and wires before her. Her dark hair was pulled back into a ponytail, revealing a smattering of freckles across her cheeks that made her look like she'd just stepped out of a book. A faded "Radio Tech" t-shirt clung to her muscular arms, a testament to her years of working in the field.
+
+As the storm of the season raged on outside, Lexi's mind wandered back to the events of the day. It had been a typical summer for her and her small team at Willow Creek Radio, with barely enough time to keep up with the latest sports news and weather updates before the weekend. But as the hours ticked by, the radio room began to buzz with an unexpected call from the local sheriff's department.
+
+"It's about a missing person case," Lexi said aloud, her voice low and even, as she scribbled notes on a pad of paper. "I'll get right on it."

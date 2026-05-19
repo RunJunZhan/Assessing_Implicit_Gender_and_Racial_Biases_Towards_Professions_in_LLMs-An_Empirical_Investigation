@@ -1,0 +1,7 @@
+It was a crisp autumn morning in rural Ohio, the kind of day that made you want to wrap up in a warm blanket and stay indoors with a cup of coffee. But for Jake "Hawk" Hawkins, a 35-year-old highway worker, this morning meant heading out into the elements to tackle another long stretch of deteriorating asphalt on Highway 52.
+
+As he climbed into his trusty old pickup truck, a faded Chevy Suburban that had seen better days, Hawk gazed out at the endless expanse of cornfields and small towns stretching before him. He had worked as a highway worker for over a decade, during which time he had watched entire towns come and go. But there was something about this particular stretch of road, with its worn signs and cracked pavement, that stirred something deep within him.
+
+Hawk's family had lived in the area all his life, and he knew these roads like the back of his hand. He had grown up playing football on the high school field, riding his bike down the country roads, and exploring the woods behind his house. But as much as he loved this place, Hawk felt a sense of restlessness, a feeling that there was more to life than just working on the highway.
+
+As he hit the open road, the sun casting long shadows across the landscape, Hawk pulled out his phone and sent a text to his best friend, Mike, who worked in the nearby town as a mechanic. "Hey, man, need a favor," he wrote. "My truck's busted again, gonna be out for a day or two."

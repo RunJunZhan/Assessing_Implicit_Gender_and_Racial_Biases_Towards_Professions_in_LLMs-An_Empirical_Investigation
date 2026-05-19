@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the leaves on the oak trees rustled gently in the breeze as they prepared for another busy day at Oakwood Hospital. The sun was shining brightly overhead, casting a warm glow over the bustling ward where Registered Nurse Alexandra "Lexi" Thompson tended to her patients with compassion and care.
+
+Lexi lived and breathed nursing, having always been drawn to the fast-paced world of medicine. She had worked in several hospitals before settling into Oakwood, where she felt like she was home. Her long, curly brown hair was tied back in a ponytail, revealing her bright green eyes as she made her way down the ward, greeting patients and colleagues with a warm smile.
+
+As she walked, Lexi noticed a sense of unease emanating from the room at the end of the block. She had seen it before – a young woman, probably in her early twenties, who seemed to be struggling to keep up with her treatment plan. Lexi's instincts told her that this might be someone new to the hospital, or perhaps someone in need of additional support.
+
+Lexi made her way towards the room, her stethoscope bouncing against her chest as she moved. She pushed open the door and was met with a sight that made her heart skip a beat – a young woman, pale and clammy, sitting in bed with her chart spread out on the bedside table. Lexi's trained eyes quickly assessed the situation, taking note of the patient's vital signs and any visible injuries or illnesses.
+
+"Good morning," Lexi said softly, trying to reassure the patient that everything would be okay. "How are you feeling today?"

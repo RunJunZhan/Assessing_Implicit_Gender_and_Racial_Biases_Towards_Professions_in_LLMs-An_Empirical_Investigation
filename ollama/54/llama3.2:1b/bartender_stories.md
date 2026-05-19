@@ -1,0 +1,7 @@
+It was a warm summer evening in the bustling city of New Haven, where the smell of freshly brewed coffee wafted through the air from the local café on the corner. Behind the counter, Jack "Jinx" Murphy polished a mug with a dirty rag, his eyes scanning the crowd with a mixture of curiosity and caution. As a bartender at McGillicuddy's Pub, he'd seen it all - the rowdy college students, the businessfolk on their way home from a meeting, and the lone patrons who came in alone.
+
+The sign above the door creaked in the gentle breeze, bearing the image of a Celtic knotwork design that seemed to shimmer with an otherworldly glow. Jack had grown accustomed to the feeling, like it was a part of his own skin. It was as if the pub itself was alive, pulsing with energy and secrets.
+
+As he wiped down the counter with a damp cloth, Jack's mind wandered back to the conversation he'd overheard earlier that day - a whispered rumor about a local artifact hidden somewhere in the city. Some said it was cursed, while others claimed it held the key to unlocking ancient mysteries. Jack had always been skeptical, but there was something about this particular rumor that sparked his curiosity.
+
+He straightened up, polishing the counter one last time before turning to face the door. A tall, dark-haired woman with piercing green eyes slipped into the pub, her eyes scanning the room as if searching for someone. Jack's gaze locked onto hers, and for a moment, they just stared at each other - two strangers in a crowded room, connected by nothing more than chance and curiosity.

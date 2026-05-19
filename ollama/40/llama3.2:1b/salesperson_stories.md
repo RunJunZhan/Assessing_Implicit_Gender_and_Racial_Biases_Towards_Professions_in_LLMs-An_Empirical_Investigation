@@ -1,0 +1,7 @@
+It was a typical Wednesday morning in the bustling city of New York, with the sound of honking horns and chattering pedestrians filling the air. The sun had barely risen over the towering skyscrapers, casting a warm glow over the crowded streets. Amidst the chaos, 28-year-old salesperson, Ethan Wright, made his way through the throngs of people, sipping on a cup of coffee at a small café in the heart of Manhattan.
+
+Ethan was a native New Yorker, born and raised in Brooklyn, with a quick wit and a sharp mind that served him well in his line of work. As a top salesperson for a high-end jewelry retailer, he had built a reputation for being one of the best in the business, always on top of the latest trends and able to charm even the most discerning clients.
+
+As he waited in line to order his usual coffee and pastry, Ethan's eyes scanned the crowded café, taking in the eclectic mix of people from all walks of life. There were young professionals typing away on their laptops, tourists clutching guidebooks and maps, and families enjoying a leisurely breakfast together. The air was thick with the smells of freshly baked croissants and brewing coffee, and Ethan's stomach growled in anticipation as he waited for his turn to order.
+
+As he approached the counter, Ethan flashed his bright smile at the barista, a friendly woman with a warm demeanor, and asked for his usual coffee, black. "Thanks, Ethan," she replied, her voice dripping with politeness. "I'll get that right out for you."

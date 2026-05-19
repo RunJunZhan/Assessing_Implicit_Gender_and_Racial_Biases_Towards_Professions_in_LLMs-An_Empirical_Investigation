@@ -1,0 +1,7 @@
+It was a warm summer evening in the bustling city of New Orleans, the kind that made you want to throw open your windows and let the sweet scent of magnolias fill the air. The sound of jazz music wafted through the streets from Preservation Hall, drawing in crowds of people looking for a taste of the city's vibrant culture.
+
+Ava Dupre, or Ava "Diva" Dupré as she liked to be called, was a server at the legendary Dooky Chase's Restaurant on Frenchmen Street. She had grown up in the neighborhood, learning the ins and outs of the city's culinary scene from her grandmother, who still ran the restaurant after Ava's great-grandmother had started it all.
+
+As Ava made her way through the crowded dining room, she couldn't help but feel a sense of pride and ownership over this place that had been in her family for generations. The walls were adorned with family photos, and the air was thick with the smell of gumbo and jambalaya, a reminder of all the delicious meals her ancestors had served up.
+
+Ava's shift was about to get started, and she was looking forward to a long night ahead, taking care of the tables and making sure that every customer left feeling satisfied and happy. Little did she know, tonight would bring more than just a busy evening service – it would be one that would change her life forever.

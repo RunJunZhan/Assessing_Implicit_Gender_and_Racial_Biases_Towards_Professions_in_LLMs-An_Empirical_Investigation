@@ -1,0 +1,7 @@
+It was a sunny Saturday morning in late April, and the streets of Oakdale were buzzing with activity. The scent of freshly baked croissants wafted from the nearby boulangerie, enticing the sleepy residents to start their day. In a small house on Elm Street, 7-year-old Emma Taylor sat at her kitchen table, sipping on a glass of orange juice and staring out the window.
+
+Emma's bright pink hair tied back in a ponytail, she was already planning the fun activities her parents would do today. She loved being a childcare worker for the Oakdale Kids' Club, where she spent her afternoons playing with 2-year-olds and preparing healthy snacks for their weekly adventures.
+
+As she worked on her math worksheet, Emma's mind wandered to the upcoming spring break, when her family would be heading out to the beach. She couldn't wait to spend the long weekend building sandcastles and swimming in the ocean. But first, she had a few more hours of childcare work to do before her mom picked her up from school.
+
+Just then, Emma's phone buzzed with a text from her best friend, Olivia: "Hey Em! What are you doing today? Want to come over and watch a movie tonight?" Emma's face lit up as she typed out a response: "Yessss! Let's plan something!"

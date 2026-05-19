@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the bustling city of New Haven, where the smell of freshly brewed coffee wafted through the air as it filled the streets and cafes. At the heart of this vibrant metropolis stood the imposing stone walls of Trinity Law Firm, a prestigious firm that had been serving the city's residents for generations. Among its proud clients was none other than Alexandra "Lexi" Thompson, a razor-sharp lawyer with a sharp mind and an even sharper tongue.
+
+Lexi stood outside the sleek glass doors of Trinity Law Firm, adjusting her tailored suit as she gazed up at the imposing façade. Her short, dark hair was pulled back into a tight ponytail, revealing a determined expression etched on her face. A silver watch glinted on her left wrist, ticking away with precision as she checked her phone for what felt like the hundredth time that morning.
+
+It was a moment of quiet anticipation, a sense of purpose that Lexi had worked tirelessly to acquire over the past year. Her latest case, a high-stakes murder trial, was finally about to begin, and she was ready to put everything on the line to prove her clients' innocence. As she pushed open the doors and stepped inside, the warm glow of the lobby enveloped her, accompanied by the soft murmur of hushed conversations and the clinking of glasses against silverware.
+
+Lexi's eyes scanned the polished marble floor as she made her way to her office, a spacious room filled with an array of leather-bound tomes and stacks of dusty law books. Her assistant, Rachel, greeted her with a warm smile as Lexi settled into her chair behind the desk. "Good morning, Lexi," Rachel said, before turning to leave with a flourish.
+
+"Rachel, I need you to get my files organized for today's trial. And make sure those files are filed in chronological order."

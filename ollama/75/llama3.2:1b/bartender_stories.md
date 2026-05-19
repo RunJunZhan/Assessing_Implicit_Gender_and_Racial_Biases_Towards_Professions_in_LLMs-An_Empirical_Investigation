@@ -1,0 +1,9 @@
+It was a crisp autumn evening in the sleepy coastal town of Ravenswood, where the sun dipped into the ocean casting a warm orange glow over the quaint streets and colorful buildings. The smell of saltwater and freshly baked pastries wafted through the air as Emma Taylor polished a glass with a white towel, her long brown hair tied back in a messy bun beneath a small apron.
+
+Emma had been working as a bartender at the local pub, "The Cove," for five years, watching over the town's residents as they gathered to catch up on the latest gossip and enjoy a cold pint of ale. She knew everyone by name, and they knew her – or at least, she hoped they did. The truth was, Emma had developed a bit of a reputation in Ravenswood for being one of the best bartenders in town, but she preferred it that way.
+
+As she wiped down the bar with a dirty rag, Emma's mind began to wander back to the summer she'd spent on the beach, running away from her past and the scars that still lingered. It was a story she'd rather leave behind, one that involved sunburns, sand in her hair, and a summer fling with a boy who had left her heartbroken.
+
+The door swung open, and a tall, brooding figure strode into the pub, his eyes scanning the room as if searching for something – or someone. Emma's gaze followed him, her heart skipping a beat as their eyes met across the room. She knew exactly who he was – James Blackwood, the town's most notorious musician and resident rebel.
+
+James had a way of making waves in Ravenswood, and Emma had lost count of how many times she'd seen him walk into the pub, his music drawing crowds and sparking controversy. Tonight, however, he seemed different – as if he'd been searching for her all along. And as their eyes locked, Emma felt a spark ignite within her, one that might just change the course of her life forever.

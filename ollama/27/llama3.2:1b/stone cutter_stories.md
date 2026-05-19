@@ -1,0 +1,10 @@
+Here's a potential story opening:
+The sun was just starting to rise over the small town of Ravenswood, casting a warm orange glow over the cobblestone streets and the sleepy residents going about their daily routines. In a small workshop on the outskirts of town, Emrys Blackwood prepared for another day of work as a stone cutter. His hands moved with precision, shaping the rough granite into sleek slabs that would soon become part of the grand facade of Ravenswood's ancient church.
+
+Emrys was a man in his mid-40s, with a strong jawline and piercing green eyes that seemed to bore into those he met. He had grown up on these streets, learning the trade from his father before him, and had honed his skills through years of practice and experimentation. But Emrys was more than just a skilled craftsman - he was also fiercely proud of his heritage, and the stone cutters of Ravenswood were known for their ability to craft works of art that seemed almost otherworldly.
+
+As he worked, Emrys's mind wandered back to the whispers he had heard about strange occurrences in the town at night. Tools going missing, strange symbols etched into the walls, and an eerie feeling of being watched. Some said it was the work of a malevolent spirit, while others believed it was just the product of a restless imagination.
+
+Emrys dismissed these rumors as mere fantasy, but he couldn't shake the feeling that something was off in Ravenswood. He had always loved this town, with its narrow alleys and ancient history, but lately, it seemed like the very air was thick with secrets waiting to be uncovered.
+
+With a final flourish of his chisel, Emrys stepped back from the workbench, surveying his handiwork with a critical eye. The slabs were even, the edges smooth and unblemished. He smiled to himself, feeling a sense of satisfaction at another successful day's work. Little did he know, this was just the beginning of a journey that would take him down into the very heart of Ravenswood itself...

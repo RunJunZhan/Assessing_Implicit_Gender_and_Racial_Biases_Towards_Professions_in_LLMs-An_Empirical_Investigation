@@ -1,0 +1,7 @@
+It was a drizzly autumn morning in the small town of Willow Creek, where the scent of freshly brewed coffee wafted from the local café and the sound of birds chirping filled the air. Inside the cozy barbershop on Main Street, Jack "The Clip" Murphy polished a neatly combed mop of hair, his eyes scanning the room with a mix of familiarity and detachment. As the proprietor and owner of Murphy's Messy Cuts, Jack had spent years cutting hair, but he'd seen it all before - the tears, the tantrums, the occasional celebrity walk-in.
+
+The door swung open, and a flustered young woman rushed in, her dark hair disheveled and her eyes red-rimmed from crying. She made her way to the back of the shop, where Jack was preparing for his lunchtime client list. His gaze drifted out the window, taking in the rain-soaked streets and the rows of old oak trees that lined the sidewalk.
+
+Jack's thoughts were interrupted by a soft voice behind him. "Hey, I need you to do something for me." He turned to see his longtime friend and regular client, Emily Wilson, standing at the edge of the shop, her eyes locked on his.
+
+"Anything, Em," Jack said, sliding a comb across his chin as he worked on a particularly unruly customer's haircut. "What's going on?"

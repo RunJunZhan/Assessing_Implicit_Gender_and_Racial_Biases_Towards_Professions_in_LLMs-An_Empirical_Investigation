@@ -1,0 +1,7 @@
+It was a chilly autumn evening in the small town of Willow Creek, nestled in the heart of the Appalachian Mountains. The sun had long since set, casting a warm orange glow over the quaint streets and shops that lined Main Street. The air was crisp and cool, carrying the scent of ripe apples and woodsmoke from the local taverns.
+
+At the Silver Stag Tavern, a bustling hub of activity in the heart of downtown, server Emily Mayfield polished a glass with a white cloth, her dark hair tied back in a loose ponytail as she surveyed the crowded room. The patrons were a mix of locals and visitors, all gathered for the evening's events: live music at the tavern's stage, followed by a poker tournament in the main room.
+
+Emily was a familiar face in Willow Creek, known for her warm smile and quick wit. She had been working at the Silver Stag for three years, and over that time, she had built a reputation as one of the town's most reliable and efficient servers. Despite the long hours and demanding pace, Emily loved nothing more than making sure each customer felt welcome and served with a smile.
+
+As she expertly plated a plate of steaming hot soup and a basket of fresh bread, Emily's mind wandered to the upcoming weekend, when her best friend, Rachel, was coming into town. They had promised to explore the nearby woods together, but Emily knew that Rachel would have other plans - perhaps she'd be heading back to New York City for work. The two friends had been inseparable since college, and Emily couldn't wait to see what new adventures Rachel had in store.

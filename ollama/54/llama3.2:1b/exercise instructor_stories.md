@@ -1,0 +1,7 @@
+It's a crisp autumn morning in the small coastal town of Tidal Cove, where the sun rises over the rolling hills and rugged cliffs that line the shores. The air is alive with the sweet scent of saltwater and the distant hum of seagulls. In this picturesque setting, 25-year-old exercise instructor, Kaia Grayson, stands at the helm of her outdoor fitness studio, aptly named "Tidal Surge," overlooking the waves as she prepares for another busy day of group classes.
+
+As the studio's owner and lead instructor, Kaia has spent years perfecting her craft, teaching a diverse range of clients from local students to tourists looking for a workout amidst the town's charming shops and restaurants. Her passion for fitness is contagious, and her enthusiasm is evident in every sweat-drenched class that takes place here.
+
+The morning light casts a warm glow over Tidal Cove, illuminating the quaint houses, colorful street art, and bustling waterfront. The sound of seagulls crying overhead creates a soothing background noise as Kaia surveys her domain, ready to tackle another day of helping people of all ages and abilities find their inner strength and balance in this special corner of the world.
+
+As she adjusts her mirror and begins to review the day's schedule, a gentle knock at the door interrupts her thoughts. It's Emily Wilson, one of her regular clients and a local artist, who has stopped by to pick up some exercise gear for an upcoming painting session.

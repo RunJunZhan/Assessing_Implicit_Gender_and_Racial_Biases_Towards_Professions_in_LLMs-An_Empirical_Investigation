@@ -1,0 +1,5 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the scent of freshly baked pastries wafted from the local bakery and the sound of leaves crunching beneath feet filled the air. In this charming setting, 22-year-old Colette LaFleur had just arrived at her latest client's home for an appointment as a manicurist. Colette was known throughout town for her impeccable style and attention to detail, and her salon, "Pigment & Polish," was always bustling with happy clients eager to indulge in a little luxury.
+
+As she slipped into the warm glow of her nail-lab, surrounded by bottles of shimmering polish and an array of colorful nail art supplies, Colette felt a sense of excitement wash over her. This morning had promised to be one of those rare days where everything went smoothly – and it was shaping up to be just that.
+
+Just as she began prepping for the first client, Colette's phone buzzed with an incoming text from her best friend, Sophie: "Hey girl! Ready to get our nails done? I've got a surprise for you!" The message only added to Colette's anticipation, and she couldn't help but wonder what kind of surprise Sophie had in store.

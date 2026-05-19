@@ -1,0 +1,10 @@
+Here's a potential story opening:
+The sun was just starting to rise over the vast, rolling hills of the Arizona ranchland, casting a warm golden light over the dusty streets and worn buildings of the small town of Redemption. It was a place where time seemed to stand still, where the air was sweet with the scent of blooming mesquite and the sound of cattle lowing filled the air. This was Willow Creek Ranch, home to Jack Ryder, a rugged and weathered rancher in his late 30s, who had spent his entire life working the land.
+
+As Jack stepped out of his worn leather saddle and onto the porch of his family's old ranch house, he took a deep breath, feeling the familiar ache in his chest that signaled it was time to face another long day of work. His weathered face was creased from years of squinting into the sun, and his dark hair was pulled back in a tight ponytail, revealing a scattering of freckles across the bridge of his nose. He wore a pair of battered cowboy boots scuffed from hours of riding, and a threadbare leather duster jacket hung slung over his shoulder, holding together with threads of worn cotton.
+
+Jack's eyes scanned the horizon, taking in the endless expanse of grasslands and rocky outcroppings that stretched out to the horizon. He had worked on this land for nigh on 20 years, and he knew its rhythms and secrets better than anyone. It was a good life, but it wasn't always easy – there were days when the rain wouldn't come, or the cattle wouldn't be healthy enough to make a profit. But Jack loved this land, and he would stop at nothing to keep it in his hands.
+
+Just then, Jack's radio crackled to life, shrill with static. "Willow Creek Ranch, this is Dispatch," a voice said. "You have a Code Brown on your ranch. One of the young calves has been injured. Report to the corral immediately."
+
+Jack nodded, tucking his hat into his belt and heading out into the brightening day.

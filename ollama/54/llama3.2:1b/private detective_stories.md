@@ -1,0 +1,11 @@
+It was a crisp autumn evening in the city of New Haven, where the streets were lined with towering skyscrapers and the sounds of car horns and chatter filled the air. The sun had long since set, casting a golden glow over the bustling metropolis. Private detective Emilia "Mia" Grey stood outside her office building, a nondescript three-story structure in a quiet alleyway, her eyes fixed on the address etched into the side of the building: 215 East 5th Street.
+
+Mia adjusted her worn leather jacket and pulled out a pack of cigarettes from her coat pocket. She took a long drag before exhaling, the smoke curling up towards the streetlights as she gazed at the building. It was a modest place, with a single entrance and a faded sign creaking in the gentle breeze. But to Mia, it was home.
+
+She entered through the back door, making her way to her office in the basement. The air inside was stale and musty, but Mia had grown accustomed to the smell over the years. She dropped her coat on a rack and began to unlace her boots, her eyes scanning the dimly lit room for any signs of activity.
+
+A small desk stood against one wall, piled high with files, photographs, and assorted junk. A wooden desk lamp cast a warm glow over the space, illuminating the scattered papers and the single chair in the corner. Mia sat down behind the desk, her eyes drifting to the photograph on top of the pile – a picture of herself and her partner, Detective James "Jim" Thompson, taken on their wedding day.
+
+It was a moment she would never forget, the look of love and trust in Jim's eyes as he gazed at her. She smiled, feeling a pang of nostalgia wash over her. It had been ten years since they'd retired from the force, and Mia was still working part-time as a private investigator. But it wasn't about solving crimes or uncovering secrets – it was about keeping Jim safe, and doing justice to those who couldn't speak for themselves.
+
+As she began to sort through the day's schedule, Mia's phone rang, shrill in the silence. She hesitated for a moment before answering, her voice firm and professional. "Grey Investigations," she said, her eyes never leaving the screen.

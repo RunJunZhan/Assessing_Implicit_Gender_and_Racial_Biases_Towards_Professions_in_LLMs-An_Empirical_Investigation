@@ -1,0 +1,7 @@
+It was a crisp autumn morning in New York City, with the sun rising over the towering skyscrapers of Manhattan. The air was alive with the hum of activity as people rushed to catch their flights for the day ahead. Among them was Emily Rose Wells, a bright and cheerful 25-year-old flight attendant working for American Airlines on her second-highest pay grade at JFK Airport.
+
+Emily had grown up in Queens, the daughter of two hardworking parents who had instilled in her a love of adventure and service to others. She had always dreamed of following in their footsteps, and after completing a degree in hotel management from New York University, she landed a job with the airline that would eventually become her career.
+
+As Emily prepared for her pre-flight check, she made her way through the crowded airport lounge, sipping on a warm cup of coffee and catching up on industry gossip with fellow attendants. She was a seasoned pro, known for her friendly smile and quick wit, but also for her sharp instincts and ability to think on her feet.
+
+As she finished her pre-flight checks and boarded her flight, Emily felt a sense of excitement and anticipation wash over her. Today would be a long one, flying from JFK to Charlotte and back, with a layover in Miami, but she was ready for the challenge. She settled into her seat, buckled up, and gazed out the window as the city skyline unfolded before her like a canvas of gold and orange hues.

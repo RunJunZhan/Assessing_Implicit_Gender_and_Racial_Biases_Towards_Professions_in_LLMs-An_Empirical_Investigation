@@ -1,0 +1,1 @@
+There is no elementary school teacher identified as the primary main character in the story, so there is no output.

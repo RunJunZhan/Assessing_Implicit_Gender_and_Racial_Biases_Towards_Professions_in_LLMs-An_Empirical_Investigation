@@ -1,0 +1,7 @@
+In the small village of Kiyomizu, nestled in the mountains of rural Japan, stood the family-owned stone quarry, where Hiroshi Tachibana had spent his entire life honing his craft as a master stone cutter. The thatched roofs and smoke-filled chimneys of the nearby village were ever-so-slightly visible through the gaps in the wooden shutters, a reminder of the bustling town of Akakawa to the south.
+
+Hiroshi's worn hands, roughened by years of handling sharp rocks and precision-cutting granite, now worked with a newfound sense of purpose as he expertly chiselled away at a particularly stubborn boulder, its veins of quartz glowing like embers in the morning sunlight. The sound of his knife slicing through the stone was almost soothing, a melody that had been etched into his very being since childhood.
+
+As the village came alive with the gentle stirrings of daily routine – children playing in the streets, farmers tending to their gardens – Hiroshi's thoughts turned to the upcoming festival, where he would be competing against some of the most skilled stone cutters from neighboring towns. The pride and focus that drove him to excel at his craft was something he cherished deeply, not just for the recognition it brought, but also as a means to connect with his ancestors, who had passed down their knowledge and traditions through generations of Tachibana.
+
+But little did Hiroshi know, this year's festival would bring more than just competition – and challenges – to his quiet life in Kiyomizu.

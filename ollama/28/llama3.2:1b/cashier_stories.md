@@ -1,0 +1,7 @@
+It was a typical Monday morning at the local convenience store, "Quick Mart," where Emily Wilson had worked as a cashier for over five years. The sun had barely risen above the horizon, casting a warm glow over the bustling parking lot and the rows of food carts that lined the street. A gentle breeze rustled through the palm trees, carrying the sweet scent of tropical flowers to Emily's ears.
+
+As she stood behind the cash register, wiping down the surface with a lint-free cloth, Emily felt a sense of routine wash over her. She had seen it all before - the morning rush, the late-night stocking, and the occasional run-in with a particularly rowdy customer. But despite the familiarity, Emily still got a thrill from being part of this daily ritual.
+
+The store's neon sign creaked gently in the morning breeze, reading "Quick Mart" in bold letters. The door swung open, and a bell above it rang out as a young professional, fresh off his job interview, hurried into the store. He eyed the rows of snacks and drinks with interest, his eyes scanning the shelves before finally coming to rest on Emily's friendly smile.
+
+"Good morning," she said, her voice warm and welcoming. "How can I help you today?"

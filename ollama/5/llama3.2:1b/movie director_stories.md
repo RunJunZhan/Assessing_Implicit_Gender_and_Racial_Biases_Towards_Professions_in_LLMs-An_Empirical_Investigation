@@ -1,0 +1,5 @@
+Here's a potential story opening for a film about a movie director:
+
+"The screen had always been her canvas, but now it was her own private hell. Director Alexandra "Lexi" Thompson sat in front of her kitchen island, sipping coffee and staring at the stack of unpaid bills that seemed to grow taller by the day. She had once dreamed of making a name for herself in Hollywood, but after years of struggling to get her films made, she was starting to lose hope. Her latest project, a psychological thriller set in the isolated Pacific Northwest, was languishing in development hell, and her bank account was starting to reflect it."
+
+This sets the scene for Lexi, a successful yet struggling movie director, as she navigates the challenges of making a living in the film industry while dealing with her own personal demons. The story will likely follow her journey as she tries to revive her career and find success in the cutthroat world of Hollywood.

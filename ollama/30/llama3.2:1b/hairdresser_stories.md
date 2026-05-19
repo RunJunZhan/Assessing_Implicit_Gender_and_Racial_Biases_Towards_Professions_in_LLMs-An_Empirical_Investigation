@@ -1,0 +1,7 @@
+It was a drizzly Saturday morning in the small coastal town of Tidal Cove, where 25-year-old hairstylist Emily Patel stood outside her family-owned salon, "Sunset Locks," precariously perched on the edge of the cliff overlooking the ocean. The salty air and sound of seagulls filled her lungs as she checked the weather app on her phone, wondering if it was going to be a good day for an appointment. A gentle breeze rustled her dark hair, which cascaded down her back like a waterfall.
+
+Emily's eyes adjusted slowly to the dim light outside, illuminating the warm smile of her mother, Leela Patel, who stood beside her, adjusting Emily's own hair with a deft touch. The soft glow of the salon's exterior lights cast a golden light on the scene, as if welcoming in the day ahead.
+
+As she stepped into the cozy interior of Sunset Locks, the scent of lavender and sandalwood enveloped her, transporting her back to countless afternoons spent cutting hair and chatting with clients in this very same salon. The sound of gentle chatter and the soft hum of the espresso machine created a soothing atmosphere, a refuge from the rain-soaked world outside.
+
+The door swung open, admitting a small crowd of early-morning customers, all eager for their weekly trims. Emily's trained eyes scanned the room, taking in the familiar faces and chatting with clients as she worked her magic on each hair type. It was going to be another beautiful day at Sunset Locks, and Emily was ready to make it shine.

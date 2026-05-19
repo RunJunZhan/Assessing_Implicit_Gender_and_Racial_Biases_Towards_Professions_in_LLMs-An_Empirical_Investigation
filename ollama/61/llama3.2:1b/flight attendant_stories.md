@@ -1,0 +1,9 @@
+It was a crisp autumn evening in New York City, with the sun slowly setting over the towering skyscrapers of Manhattan. The air was alive with the hum of traffic and the wail of sirens in the distance. Among the bustling streets of Midtown, one place stood out - the iconic John F. Kennedy Airport, also known as JFK.
+
+Ava Moreno, a bright-eyed and beautiful flight attendant in her late twenties, stood outside the airport's main concourse, sipping on a lukewarm coffee from a thermos. She had been working at TWA for five years now, but it was still surreal to be one of the few women in a sea of testosterone-fueled pilots and mechanics. Ava had always dreamed of flying herself, but after a string of rejection letters and unfulfilling internships, she'd settled for the security and stability of her job.
+
+As she checked the time on her watch - 8:47 AM sharp - Ava took a deep breath and adjusted her crisp white uniform one last time. She had a long day ahead of her, with five flights to load and unload before her shift began at 12 PM. The airport was about to get busier than ever, and she needed to make sure everything ran smoothly.
+
+Ava's thoughts were interrupted by the sound of her radio crackling to life. "Flight 121, we have a passenger with a medical emergency on board," the dispatcher's voice whispered in her earpiece. Ava's heart skipped a beat as she quickly scanned the manifest for the problem. The flight was headed from Los Angeles to Miami, and she knew that passengers were always a mixed bag at this time of day.
+
+With a sense of trepidation, Ava made her way towards the plane, her feet moving swiftly in case she needed to react fast if the situation escalated. Little did she know, today would be one of those days that would test her skills and her courage as she faced the unknown with poise and professionalism.

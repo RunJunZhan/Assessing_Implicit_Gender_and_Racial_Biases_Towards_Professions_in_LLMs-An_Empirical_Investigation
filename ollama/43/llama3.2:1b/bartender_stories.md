@@ -1,0 +1,9 @@
+It was a warm summer evening in the small coastal town of Tidal Cove, where the sun dipped into the ocean and painted the sky with hues of pink and orange. The air was filled with the sweet scent of blooming flowers and the sound of seagulls crying overhead. This was home to Jack "Hawk" Hawkins, a 28-year-old bartender at the local watering hole, The Salty Dog.
+
+The Salty Dog was a bustling pub that had been a staple in Tidal Cove for decades, known for its friendly patrons, cold beers, and warm hospitality. Hawk's father had owned the bar when he was just a young man, and Hawk had learned the ins and outs of bartending from him. After graduating from college, Hawk had returned to his hometown to take over the family business.
+
+As Hawk polished a glass with a white towel, he gazed out at the calm waters of Tidal Cove's harbor. The fishing boats were docked, their engines idling as they waited for the night's catch. A group of locals had gathered outside, laughing and chatting over drinks. Hawk's regulars included fishermen, fishermen's wives, and the occasional tourist looking to escape the hustle and bustle of city life.
+
+The atmosphere at The Salty Dog was always lively, but tonight seemed especially vibrant. The music from a nearby beachside bar drifted across the water, adding to the festive ambiance. Hawk smiled to himself as he heard the familiar beat of reggae music and the chatter of his regulars. He loved being a bartender in Tidal Cove – it was a small town with big hearts, and Hawk felt right at home here.
+
+Just as Hawk was about to take another order from a thirsty customer, his phone buzzed on the counter. It was his best friend, Alex, calling to ask if he wanted to meet up for a drink after closing time. Hawk's eyes lit up, and he quickly finished polishing the glass before answering. "What do you want to do?" he asked, already knowing the answer.

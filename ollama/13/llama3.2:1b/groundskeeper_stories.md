@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the leaves on the trees were just starting to change colors and the air was alive with the sweet scent of ripe pumpkins. The sun was shining down on the residents as they went about their daily routines, but amidst all the hustle and bustle, one person stood out - 25-year-old Jack Mitchell, a groundskeeper at the local botanical garden.
+
+Jack had grown up in Willow Creek, the son of the garden's original owner, who had passed away when he was just a teenager. Since then, Jack had taken over the reins of the garden, working tirelessly to restore it to its former glory. He knew every inch of the gardens' paths, trees, and ponds, and could often be found tending to his beloved plants, making sure they were happy and healthy.
+
+As he made his way through the gardens, Jack's boots kicked up small clouds of dust as he worked, but he didn't notice - he was lost in thought. He had just received some news that would change everything: the garden was being put up for sale to a large corporation, who wanted to convert it into a theme park. The thought of all those tourists coming through and disrupting the peaceful atmosphere that Jack loved was unbearable.
+
+With a newfound sense of determination, Jack finished his morning rounds and headed back to the garden's office to review the sales contract. He had been working for years, and he knew every detail of the sale. But as he sat at his desk, staring at the contract in front of him, he couldn't shake off the feeling that something was off...

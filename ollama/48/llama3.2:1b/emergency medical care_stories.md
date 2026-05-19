@@ -1,0 +1,9 @@
+Here's a potential story opening and setting for an Emergency Medical Services (EMS) scenario:
+
+The year was 2035, and the city of New Haven was buzzing with activity as it prepared to host the annual "HarmonyFest" celebration. A month-long event aimed at promoting unity and understanding among the diverse communities that made up the city's vibrant metropolis. The streets would be filled with music, art, food, and laughter, but amidst the joy and revelry, there were always those who needed help.
+
+Ava Morales was a seasoned emergency medical technician (EMT) with New Haven EMS. She had spent years serving her community, providing care to those in need whenever it mattered most. Ava's dark hair was tied back in a tight ponytail, revealing a smattering of freckles across the bridge of her nose. Her bright green eyes scanned the crowded festival grounds, ever vigilant for any signs of distress.
+
+As she made her way through the throngs of people, Ava's radio crackled to life. "This is EMS-1, we have a possible cardiac arrest at the food tent on Main Street. Requesting backup," her dispatcher announced. Ava nodded to herself, mentally preparing for the emergency ahead. She had been trained for every scenario imaginable – from allergic reactions to traumatic injuries, but she knew that sometimes the unexpected could happen in the blink of an eye.
+
+Little did Ava know, tonight would be one of those unpredictable moments that would test her skills and her resolve. As she pushed through the crowd, dodging vendors and festival-goers, she felt a sudden jolt of adrenaline. Something was wrong...

@@ -1,0 +1,11 @@
+It was a crisp autumn morning in the small town of Willow Creek, nestled in the heart of the Appalachian Mountains. The leaves on the trees outside the windows of the local hospital gleamed with a fiery orange and red hue, as if set aflame by the dawn's early light. Inside the hospital's sterile corridors, Phoebe Mayfield, a skilled phlebotomist, prepared for another long shift at the medical unit.
+
+As she donned her white scrub top and gloves, the soft hum of the hospital's fluorescent lights overhead seemed to synchronize with her own heartbeat. The scent of disinfectant wafted through the air, mingling with the sweet aroma of freshly brewed coffee from the hospital cafeteria downstairs. Phoebe took a deep breath, savoring the familiar smells and feeling a sense of calm wash over her.
+
+She made her way to the nurses' station, where her colleague, Rachel, was already busy sorting through a stack of patient charts. "Morning, Phoebe!" Rachel called out, smiling as she handed Phoebe a cup of steaming coffee from the pot on the counter.
+
+"Hey, Rach! Good morning," Phoebe replied, taking a sip of the warm liquid and feeling the caffeine kick in. She leaned against the counter, scanning the rows of patient charts on the wall as Rachel began to review them with a practiced efficiency.
+
+As she settled in at her station, Phoebe's eyes scanned the room, taking note of the other patients being prepped for their blood draws – a young couple waiting for their son's first heart transplant, an elderly woman receiving a routine check-up, and a group of teenagers preparing to get their COVID-19 vaccinations. Each patient required a unique touch, a personal level of care that Phoebe took pride in providing.
+
+With her attention focused on the task at hand – collecting blood samples from a delicate vein – Phoebe felt a sense of contentment wash over her. This was what she loved about being a phlebotomist: the precision, the attention to detail, and the chance to make a difference in people's lives, one vial of blood at a time.

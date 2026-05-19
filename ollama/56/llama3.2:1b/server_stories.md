@@ -1,0 +1,7 @@
+It was a crisp autumn evening in the bustling city of New Haven, where the scent of roasting chestnuts and freshly baked pastries wafted through the air from the many street vendors that lined the cobblestone streets. The sound of laughter and chatter filled the night air as people from all walks of life came together to celebrate the end of another busy day.
+
+Ava Moreno, a 25-year-old server at Bistro Bliss, a cozy French-inspired restaurant in the heart of the city, wiped down the counter with a dirty rag, her eyes scanning the room for any last-minute table requests. She had worked at Bistro Bliss for three years now, and it was one of her favorite places to work, surrounded by like-minded people who shared her passion for good food and even better company.
+
+As she took a deep breath, Ava felt a sense of contentment wash over her. It was going to be one of those perfect nights – the kind where every table came in at exactly 7:15 PM sharp, and every dish that went out was met with raves from the regulars. She loved being part of such a tight-knit community, and she took pride in delivering exceptional service to each and every customer who walked through her door.
+
+Just as Ava was starting to get into the swing of things, the restaurant's manager, Monsieur LeFleur, approached her with a friendly smile. "Ava, darline, we've got a special tonight – a private dinner for five friends of ours. We'll need you to bring them everything they can want."

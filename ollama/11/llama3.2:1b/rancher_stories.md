@@ -1,0 +1,4 @@
+Here's a potential story opening:
+The sun was just starting to peek over the horizon on the small town of Red Rock, casting a warm glow over the dusty streets and worn adobe buildings that seemed to lean in, as if sharing a secret. In the midst of this quiet haven, 25-year-old rancher Jack "Blackjack" McCoy rode his horse, Scout, out of the old McCoy Ranch, the largest in the entire region. The wind whipped through Blackjack's messy blond hair as he guided Scout towards the town square, where the local general store, the Red Rock Saloon, was already abuzz with activity.
+
+Setting: The small town of Red Rock, nestled at the edge of a vast desert landscape, surrounded by mountains that stretched up to the sky like giant's fists. The air is crisp and clean, with a hint of dust and sweat from the ranching community.

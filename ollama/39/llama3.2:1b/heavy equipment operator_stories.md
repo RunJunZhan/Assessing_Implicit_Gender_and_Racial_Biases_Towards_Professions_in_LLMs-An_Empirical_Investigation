@@ -1,0 +1,9 @@
+It's a chilly autumn morning in the small town of Oakdale, nestled in the heart of rural Pennsylvania. The sun rises over the horizon, casting a warm glow over the rolling hills and farmland that stretch as far as the eye can see. In a small garage on the outskirts of town, Jack "Hawk" Hawkins is waking up to the sound of his chainsaw roaring to life as he prepares for another long day of work.
+
+Jack is a 35-year-old heavy equipment operator with the local construction company, Hawk Equipment Rentals. He's been working on the family farm for over a decade, and has developed a deep respect for the land and its rhythms. Jack's thick, dark hair is tied back in a ponytail, and his hazel eyes are tired but alert from a good night's sleep.
+
+As he makes his way to the garage, Jack checks his watch for what feels like the hundredth time. He has a long day of work ahead of him, starting with a big excavation project at the old mine on the outskirts of town. The project is expected to be one of the biggest of the season, and Hawk Equipment Rentals is contracted to provide the heavy machinery needed to bring it to life.
+
+Jack's truck pulls up outside the garage, and he fires up the engine as he loads his gear into the back bed. He's carrying a custom-built John Deere 7R digger, its hydraulic arms gleaming in the morning light. Jack feels a sense of pride and satisfaction as he climbs into the driver's seat, knowing that this machine is one of the most powerful tools on the job site.
+
+As he pulls out of the garage, Jack takes a deep breath of the crisp autumn air, feeling the cool breeze fill his lungs. He glances in his rearview mirror, catching a glimpse of the sleepy town receding into the distance. This is his home for the next few days, and he's determined to make the most of it.

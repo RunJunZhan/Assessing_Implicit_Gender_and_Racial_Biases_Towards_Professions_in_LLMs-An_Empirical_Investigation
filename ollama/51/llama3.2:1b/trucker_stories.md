@@ -1,0 +1,7 @@
+It was a crisp autumn evening in the small town of Oakdale, nestled in the heart of rural Georgia. The sun had just dipped below the horizon, casting a warm orange glow over the quaint Main Street. The smell of sizzling burgers and funnel cakes wafted from the local diner, enticing passersby to stop and indulge.
+
+In his worn leather trucker jacket, Jack "Hawk" Hawkins pulled into the town's only gas station, filling up his 18-wheeler with a mixture of diesel and premium fuel. As he climbed out of the cab, his dark hair was slicked back, revealing piercing blue eyes that seemed to see right through the crowds. His rugged features and broad shoulders spoke of a life spent on the open road, but there was something about Hawk's weathered demeanor that hinted at a deeper story.
+
+Hawk had been driving for over 20 years, crisscrossing the country in search of work and adventure. He'd seen it all – from sun-kissed highways to neon-lit cityscapes – but nothing compared to the beauty of Oakdale, with its tight-knit community and endless nights of small-town charm.
+
+As he topped off his tank, Hawk's phone buzzed with an incoming text from his dispatcher. His eyes narrowed as he read the message: "Rush job in Atlanta. Be there by 6 AM sharp." Hawk's gut tightened – he knew what that meant: a new gig on the other side of town, and a chance to cash in. But he also knew better than to stick around too long; his paychecks came with a price, and Oakdale was just another stop on his journey.

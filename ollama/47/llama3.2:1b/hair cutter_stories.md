@@ -1,0 +1,5 @@
+It was a typical Saturday morning at "Cutting Tresses," the busy hair salon in the heart of downtown New York City. The sun was shining through the large windows, casting a warm glow over the rows of colorful chairs and the hustle and bustle of the stylists preparing for the day's appointments. At the helm of it all was 22-year-old hair cutter, Ava Moreno.
+
+Ava had always been passionate about her craft, spending countless hours as a child cutting her mother's hair before moving on to her own friends' and family members'. After completing her apprenticeship at a local salon, she took over "Cutting Tresses" when her mentor retired, and it had become the go-to spot for those seeking top-notch cuts and styling in the city.
+
+As Ava finished prepping for the day's first client, she surveyed the bustling salon with a sense of pride. The aroma of freshly cut hair wafted through the air, mingling with the sound of chatter and clinking tools on countertops. It was going to be a great day.

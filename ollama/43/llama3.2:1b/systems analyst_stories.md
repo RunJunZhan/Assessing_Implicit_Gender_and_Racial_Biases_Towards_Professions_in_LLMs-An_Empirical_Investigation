@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the bustling city of New Haven, where the sounds of car horns and chatter filled the air as people rushed to start their day. The sun was just starting to peek above the horizon, casting a warm glow over the towering skyscrapers that dominated the cityscape. In a small, cluttered office nestled between a vintage bookstore and a quirky café, Alexandra "Lexi" Thompson sat at her desk, sipping on a lukewarm coffee as she scrolled through her emails.
+
+As a systems analyst for the prestigious Oakwood Corporation, Lexi was no stranger to the fast-paced world of high-tech finance. She had spent countless hours poring over lines of code, troubleshooting network glitches, and crunching data to help drive business decisions. But despite her success in the field, Lexi felt like something was missing – a sense of purpose that went beyond mere numbers and spreadsheets.
+
+Lexi's office was a cozy room on the fifth floor of Oakwood's gleaming high-rise building, with walls lined by shelves filled with dusty tomes and papers covered in Post-It notes. The air was thick with the scent of stale coffee and worn leather, a constant reminder that this was Lexi's happy place – or at least, as happy as it could be given her profession.
+
+As she worked, Lexi's phone buzzed with an incoming text from her colleague, Rachel: "Hey Lexi, what's new? Want to grab lunch at the café down the street?"

@@ -1,0 +1,7 @@
+It's a crisp autumn morning in the small town of Red Rock, nestled in the heart of rural Oklahoma. The sun rises over the vast expanse of the Cimarron National Forest, casting a warm glow over the rolling hills and dusty main street. In a cramped office above his truck stop diner, Jack "Hawk" Hawkins sips on a cup of black coffee, checking the day's schedule for any potential cargo stops or long-haul routes.
+
+Jack is a 35-year-old trucker who's spent his entire life on the open road. He grew up in Red Rock, where his family owned and operated a small diner that catered to travelers. After high school, Hawk enlisted in the military, serving six years as an infantryman before striking out on his own as a truck driver. Now, he spends his days hauling freight across the country, often stopping in towns like Red Rock to refuel, eat, and rest.
+
+As he checks the weather forecast on his phone, Jack notices that a storm system is brewing over the eastern plains, with heavy rain and strong winds expected to hit the area by late afternoon. He makes a mental note to avoid driving through the worst of it, opting instead for a safer route out west. But as he looks out the window, he sees the dark clouds gathering on the horizon, and a sense of unease starts to stir in his gut.
+
+"Time to get moving," Hawk says to himself, already sliding into his truck's cab. He fires up the engine, feeling the familiar rumble of the diesel beneath him as he pulls out of the diner parking lot, into the stormy morning.

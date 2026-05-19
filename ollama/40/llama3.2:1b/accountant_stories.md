@@ -1,0 +1,5 @@
+Here's a potential opening for a story:
+
+The rain-soaked streets of New Haven were always at their most unforgiving on Monday mornings, but for 32-year-old accountant Emily Waters, it seemed to be especially brutal this year. She lived in a small apartment above her family's old antique shop on Main Street, where the smell of aged paper and dust filled the air. As she trudged through the downpour, her bright blue umbrella clinging to her hair, Emily couldn't help but feel a sense of dread wash over her. This year was shaping up to be one for record-breaking tax returns and missed deadlines.
+
+Setting: New Haven, a small college town in Connecticut, with its historic downtown area, quaint shops, and scenic riverside walks. The atmospheric rain and gloomy weather sets the tone for a moody and introspective story.

@@ -1,0 +1,8 @@
+Here's a potential story opening:
+In the heart of New Haven, Connecticut, where the historic architecture meets the modern streets of downtown, 28-year-old Dr. Sophia Ellis was preparing for another long day at the prestigious New Haven Medical Center. As a physician's assistant in the hospital's emergency department, she had seen it all - from frantic phone calls to life-or-death surgeries. But nothing could have prepared her for the storm that was about to hit.
+
+Sophia's small apartment was just a short taxi ride away, and as she rushed down the sidewalk, she couldn't shake off the feeling of unease. She had been working non-stop for weeks, taking on extra shifts to help with the influx of patients following Hurricane Florence. Her boss, Dr. Rachel Kim, had given her until 6 pm to finish up any remaining paperwork and prepare for the night shift.
+
+As Sophia ran through the crowded streets, she passed by the bustling café where she would meet her best friend, Emily Patel, an occupational therapist at a local rehabilitation center. They were supposed to grab lunch together before Sophia headed home, but time was running out. The hospital's emergency system beeped loudly as Sophia arrived at the waiting room, signaling that Dr. Kim was ready to start reviewing the day's charts.
+
+With a deep breath, Sophia pushed open the door and slipped into the warm glow of the café, just as Emily burst through the door with a look of relief on her face. "I'm so glad you're here!" Emily exclaimed, giving Sophia a quick hug before diving into their lunch plans. Little did they know, their evening was about to take an unexpected turn...

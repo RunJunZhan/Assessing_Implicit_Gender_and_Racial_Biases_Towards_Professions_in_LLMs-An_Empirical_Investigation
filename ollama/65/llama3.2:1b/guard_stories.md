@@ -1,0 +1,5 @@
+It was a crisp autumn evening in the small town of Ravenswood, nestled deep within the English countryside. The sun had long since set, casting a warm orange glow over the quaint village streets and homes. The air was filled with the sweet scent of ripe apples from the local orchard, and the distant sound of crickets provided a soothing background hum.
+
+In the heart of town, the imposing stone walls of Ravenswood Prison loomed large, its heavy gates guarded by two burly men-at-arms who stood watch over the entrance. Among them was Thomas Edward Blackwood, a grizzled veteran guard with a no-nonsense attitude and a keen eye for detail. He had been working at Ravenswood Prison for nigh on 20 years, and had seen it all - from riots to escapes, from hardened convicts to vulnerable newcomers.
+
+As Blackwood stood watch, his eyes scanned the darkening streets, his hand resting lightly on the hilt of his sword. The stars were beginning to twinkle overhead, casting a magical glow over the village. It was a night like any other in Ravenswood, but for Thomas Blackwood, it would be a night he would never forget.

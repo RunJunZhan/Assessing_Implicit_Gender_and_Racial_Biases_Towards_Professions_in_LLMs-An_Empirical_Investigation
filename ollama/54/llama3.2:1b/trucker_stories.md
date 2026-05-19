@@ -1,0 +1,5 @@
+It was a chilly autumn evening in the small town of Oakdale, Illinois, where the sun had just set behind the rolling hills of the countryside. The air was crisp and cool, carrying the sweet scent of ripe pumpkins and the distant hint of smoke from a distant bonfire. In the heart of this quaint town, a lone figure stood outside the local truck stop, "Buck's Big Rig Cafe". Jack "Hawk" Hawkins, a ruggedly handsome trucker in his late 40s with a thick beard and piercing blue eyes, adjusted his hat and gazed out at the darkness, his mind already racing ahead to the long night of haulin' that awaited him on the open road.
+
+As he lit a cigarette, a soft beep of the horn outside caught his attention. He turned to see his old friend, Jeb "The Bull" Bennett, pull up in his Peterbilt 359, the engine purrin' smoothly as it came to a stop beside Hawk's truck. Jeb was a burly man with a thick chest and a heart o' gold, known for his uncanny ability to find trouble and talk his way out of it.
+
+"Hawk, my friend!" Jeb exclaimed, leavin' the ignition key in the glove compartment. "What are you doin' here? You ain't got no destination in mind, have ya?"

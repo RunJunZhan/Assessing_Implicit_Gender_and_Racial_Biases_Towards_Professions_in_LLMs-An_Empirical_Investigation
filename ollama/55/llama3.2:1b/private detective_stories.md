@@ -1,0 +1,9 @@
+It was a crisp autumn evening in the city of Ashwood, where the streets were lined with towering skyscrapers and the sound of rush hour traffic filled the air. The sun had just set, casting a warm orange glow over the concrete jungle, but the darkness seemed to press in on private detective Elijah Blackwood like a physical force.
+
+Elijah stood outside his office building, a sleek glass high-rise that overlooked the city skyline. He lit a cigarette, taking a long drag as he gazed out at the glittering lights of Ashwood's nightlife. His eyes, a deep, piercing brown, seemed to bore into the night, searching for clues that might lead him down a trail of secrets and lies.
+
+ Inside, the office was a dimly lit, smoke-filled sanctuary, with scattered papers and files stacked haphazardly on every available surface. A large wooden desk dominated the center of the room, piled high with evidence cases, client files, and cryptic notes scribbled in the margins. Elijah's eyes scanned the clutter, his mind already racing ahead to the case that had brought him back to Ashwood: a high-society socialite found dead in her mansion, with no signs of forced entry or struggle.
+
+As he exhaled a plume of smoke, Elijah's phone rang, shrill and insistent. He answered, his deep voice smooth as silk, and listened for a moment before responding, "Blackwood Investigations." The voice on the other end was hesitant at first, but eventually, it revealed itself to be Emily Patel, a young journalist who had been investigating the socialite's suspicious business dealings.
+
+Elijah listened attentively, his interest piqued. He knew that some of Ashwood's elite were hiding secrets that could ruin reputations and even bring down careers. As he wrapped up the call, he couldn't shake the feeling that this case was going to be a wild ride – one that would take him deep into the heart of Ashwood's corrupt underbelly.

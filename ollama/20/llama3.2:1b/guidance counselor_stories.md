@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the small town of Oakdale, nestled in the heart of rural Maine. The sun was just starting to rise over the sleepy streets, casting a warm glow over the quaint homes and businesses that lined Main Street. In the midst of this peaceful atmosphere, a sense of unease settled over the guidance counselor office at Oakdale High School.
+
+Avery Wellesley, a soft-spoken and introspective individual in their late 20s, sat behind the desk, sipping on a cup of coffee as they went through the day's schedule. Avery had been the school's guidance counselor for three years now, and over that time, they had grown accustomed to the quiet, predictable rhythms of high school life. But despite the familiarity, Avery couldn't shake off the feeling that something was amiss.
+
+The main reason for this unease was a new student who had transferred to Oakdale High School from a neighboring town just a few months ago. Her name was Sophia Patel, and she was an 18-year-old senior with a reputation for being fiercely independent and intensely loyal to her family. Avery had been tasked with helping Sophia navigate the complexities of high school life, and so they had begun by meeting with her during lunch in the school cafeteria.
+
+As Avery watched Sophia walk through the doors, their eyes met across the room, and for a brief moment, time seemed to stand still. There was something about Sophia's piercing green eyes that seemed to hold a depth of feeling that Avery couldn't quite decipher. They exchanged a tentative smile, and Avery felt a flutter in their chest that they had never experienced before.
+
+"Good morning," Avery said finally, forcing a warm smile onto their face as Sophia made her way over to the guidance counselor's desk. "How's your first day going so far?"

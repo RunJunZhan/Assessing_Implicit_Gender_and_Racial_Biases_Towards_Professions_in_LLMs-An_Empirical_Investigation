@@ -1,0 +1,5 @@
+It was a crisp autumn evening in the small town of Ravenswood, nestled deep within the heart of the Whispering Woods. The sun had long since set, casting a warm orange glow over the quaint streets and homes, but a lone figure stood watch at the entrance of Ravenswood Keep, its stone walls and towers standing sentinel against the darkness.
+
+His name was Eryndor Thorne, a gruff yet fair-minded guard who had served the keep for nigh on twenty years. His weathered face and worn leather armor spoke of countless battles fought and won within these ancient walls. Yet, despite his rugged exterior, Eryndor's heart remained steadfastly loyal to Ravenswood and its people.
+
+As he gazed out into the fading light, the shadows danced across the ground like restless spirits, their whispers carried on the wind by the faint breeze that rustled through the trees. The air was heavy with the scent of damp earth and decaying leaves, a primordial aroma that spoke to Eryndor's deep connection to this foreboding yet beautiful place. He stood tall, his eyes scanning the perimeter of Ravenswood Keep, ever vigilant for any sign of trouble or intruder.

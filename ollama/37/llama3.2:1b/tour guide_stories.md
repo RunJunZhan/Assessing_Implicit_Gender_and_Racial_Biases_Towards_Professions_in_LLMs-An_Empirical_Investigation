@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small coastal town of Tidal Cove, where the sun was just starting to rise over the sleepy streets lined with quaint shops and seafood restaurants. The air was filled with the sweet scent of freshly baked pastries and the sound of seagulls crying overhead as they took to the sky.
+
+Among the crowd gathered at the local pier, waiting for the ferry that would take them out to explore the nearby island of Ravenshire, stood Emily Mayfield - a bright-eyed and bushy-tailed tour guide with a passion for sharing the secrets and history of this charming town. With her dark hair tied back in a ponytail and a warm smile on her face, Emily was always impeccably dressed in her crisp white blouse and navy blue pants, complete with a name tag that read "Emily Mayfield, Coastal Tours".
+
+As she stood at the edge of the pier, sipping a cup of coffee and gazing out at the calm waters of the Sound, Emily felt a sense of contentment wash over her. This was her happy place - among the tourists, on the water, and surrounded by the beauty of Tidal Cove and its surroundings. She loved nothing more than exploring this little town with groups of visitors, discovering hidden gems and sharing her knowledge with them.
+
+But today was different. Today, Emily had a special delivery for a group of first-time visitors who were about to embark on their very first tour of Ravenshire - and she couldn't wait to show them the real island. Little did they know, Emily had a secret that would make this trip one they would never forget...

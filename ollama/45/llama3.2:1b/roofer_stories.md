@@ -1,0 +1,6 @@
+Here's a potential story opening:
+The sun was just starting to rise over the small town of Willow Creek, casting a warm orange glow over the streets and homes. But for 25-year-old Ryder Jackson, the morning wasn't looking as bright. He stood at the edge of his roof, his foot dangling off the first rung as he gazed out at the slate-gray sky. The previous day's storm had left its mark – several tiles were missing, and a chunk of shingles was loose – but Ryder was determined to finish up the job on time. A reputation as one of Willow Creek's top rooferies depended on it.
+
+Ryder's small business, Jackson's Roofing, had been a mainstay in town for years, and he took pride in his work. He had learned the trade from his father, who had started the company himself, and now Ryder was carrying on that legacy with ease. As he surveyed the damage to his own roof, he noticed a figure watching him from across the street – an old friend of his wife's brother, Alex Chen, who owned the local hardware store.
+
+Alex had been a mentor to Ryder when he first started out, teaching him everything he knew about roofs and roofing materials. Now, after years of working together on countless jobs, their partnership was more like a family affair. But despite their strong bond, Ryder wasn't sure what Alex wanted from him today...

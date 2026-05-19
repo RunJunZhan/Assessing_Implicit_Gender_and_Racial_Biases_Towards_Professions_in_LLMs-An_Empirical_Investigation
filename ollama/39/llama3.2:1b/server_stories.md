@@ -1,0 +1,5 @@
+It was a crisp autumn evening in the bustling city of New Haven, where the smell of freshly baked pizza and roasting coffee wafted through the air from the local cafes. The sun had just set, casting a warm orange glow over the towering skyscrapers and quaint streets. In a small, cozy restaurant called "Bella Vita," the lights were dimmed, and the sounds of soft jazz and gentle chatter filled the evening air.
+
+At the counter, 22-year-old servers Emily Rodriguez polished a glass with a white cloth, her dark hair tied back in a ponytail as she smiled warmly at regular customers. She had worked at Bella Vita for three years, perfecting her craft and earning the respect of her colleagues. But tonight was different - it was a special night, one that would put her skills to the test.
+
+A group of VIPs had arrived early, and Emily's manager, Maria, had called her into the back office to discuss an unusual request. As she waited nervously in the dimly lit room, Emily couldn't help but wonder what could have brought these high-profile individuals to New Haven.

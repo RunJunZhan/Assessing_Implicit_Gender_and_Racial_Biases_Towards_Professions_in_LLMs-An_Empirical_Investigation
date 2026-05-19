@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small coastal town of Raven's Cove, where the salty air and sound of seagulls filled the air. The year was 1922, and the town was abuzz with excitement as the annual Harvest Festival approached. For Emily Windsor, a young author of Gothic novels, this meant a chance to escape the confines of her writing desk and immerse herself in the vibrant atmosphere of Raven's Cove.
+
+Emily Windsor stood at the edge of the deserted beach, the wind whipping her curly brown hair into a frenzy as she gazed out at the waves. She had always been drawn to the ocean's power and beauty, and this was her favorite place to clear her mind before embarking on another writing session. The soft sand beneath her feet felt like a canvas waiting for her brushstrokes, and she couldn't wait to dive into her latest manuscript.
+
+As a renowned author of horror and suspense novels, Emily had built a reputation in literary circles as a master of the macabre. Her latest book, "The Shadow on Blackwood Hill," was set to be released next month, and she was eager to get the word out to her fans. But for now, she needed a break from the world outside these familiar shores.
+
+Just then, Emily's eyes landed on a small cottage perched precariously on the edge of the beach, its thatched roof and chimney puffing out clouds of smoke like a miniature volcano. She felt an inexplicable pull towards the cottage, as if it was calling to her. Little did she know, this chance encounter would set off a chain of events that would change her life forever.

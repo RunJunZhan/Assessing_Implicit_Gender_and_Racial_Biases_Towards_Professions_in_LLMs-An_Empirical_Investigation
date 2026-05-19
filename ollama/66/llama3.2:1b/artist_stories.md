@@ -1,0 +1,7 @@
+It was a drizzly autumn morning in the small coastal town of Tidal Cove, where the salty air mingled with the sweet scent of blooming sunflowers that stretched along the winding streets. The town's residents were slowly emerging from their homes, sipping coffee and checking their phones as they prepared for another busy day at the local art gallery.
+
+Aurora "Rory" Wellesley was a 25-year-old artist who had grown up in Tidal Cove her entire life. She was known for her vibrant paintings of coastal landscapes, which seemed to capture the essence of the town's unique energy. Rory spent most of her days at the gallery, where she displayed her latest works alongside other local artists. Despite her success, she remained humble and kind, always willing to offer a smile or a listening ear to those who stopped by.
+
+As Rory stepped out of her small studio apartment above the gallery, she felt a sense of excitement wash over her. Today was the day of the annual Tidal Cove Art Show, a celebration of local creativity that drew visitors from all over the state. The streets were already buzzing with activity as people set up tables and displays for the exhibition.
+
+Rory's eyes scanned the crowded sidewalk, taking in the eclectic mix of art pieces on display – from delicate watercolors to bold sculptures made from reclaimed wood. She felt a thrill run through her veins as she spotted her best friend, Luna Nightingale, expertly arranging a new installation on one of the tables.

@@ -1,0 +1,7 @@
+It was a typical Monday morning in the bustling city of New York, with people rushing to catch their trains and buses to start their day. The sun had barely risen over the towering skyscrapers, casting a warm glow over the crowded streets. In a small studio apartment nestled between a vintage record store and a quirky art supply shop on the Upper West Side, 25-year-old graphic designer Emilia "Mia" Thompson stirred awake.
+
+Mia stretched her arms above her head, yawned, and swung her legs over the side of the bed. She lived off a meager budget, relying on part-time jobs to make ends meet while pursuing her passion for design. Her apartment was a reflection of her eclectic personality - vintage posters adorned the walls, and her desk was covered in scattered sketches, drafts, and half-finished projects.
+
+As she shuffled into the kitchen to start her day with a cup of coffee, Mia's phone buzzed with an invitation from her best friend, Rachel. "Hey girl, want to meet up at that new art exhibit on 5th Avenue? I heard it's going to be amazing."
+
+Mia smiled, already imagining the creative possibilities. She was looking forward to spending the day browsing galleries, admiring art, and catching up with Rachel. It was just another ordinary Monday morning for this graphic designer-turned-artist, but she wouldn't have it any other way.

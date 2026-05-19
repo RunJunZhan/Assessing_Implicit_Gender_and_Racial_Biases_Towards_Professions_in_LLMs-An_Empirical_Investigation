@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the bustling city of New Haven, where the sounds of car horns and chatter filled the air as people rushed to start their day. The sun was just beginning to peek over the horizon, casting a warm glow over the towering skyscrapers and historic buildings that made up the city's vibrant downtown area.
+
+In a small apartment above a bustling coffee shop in the heart of the city, 25-year-old Phoebe Jenkins stirred restlessly as she rubbed the sleep from her eyes. She was a phlebotomist at New Haven Medical Center, one of the busiest hospitals in the state, and she had just finished her morning shift.
+
+Phoebe's apartment was a cozy little place that she shared with her best friend and fellow medical professional, Rachel Patel. The two women were both in their mid-twenties and had met while working at the hospital several years ago. Phoebe worked the evening shift as a phlebotomist, drawing blood samples from patients who were being treated for everything from minor illnesses to life-threatening injuries.
+
+As she got ready for work, Phoebe thought about her plans for the day. She was scheduled to take a quick lunch break before heading back to the hospital, where she would spend the afternoon assisting with patient care and conducting lab tests. After her shift ended, she would head home to relax and spend time with Rachel, who had promised to meet up at a nearby coffee shop later that evening.
+
+The doorbell rang, and Phoebe's heart skipped a beat as she quickly got dressed and made her way downstairs to answer it. It was Rachel, holding a steaming cup of coffee and looking like she hadn't slept much herself. "Hey, beautiful," Rachel said with a smile, as she handed Phoebe the cup. "I brought you some coffee to start your day off right."

@@ -1,0 +1,7 @@
+It was a crisp autumn morning on the vast, sun-scorched range of the Oakwood Ranch, where cattle grazed under the watchful eyes of the late summer haze. Ryder Flynn, a rugged and weathered rancher in his mid-40s with a strong jawline and piercing blue eyes, stood atop a rocky outcropping, gazing out at the breathtaking vista before him. His worn leather boots scuffled against the dry earth as he breathed in the rich scent of fresh hay and damp soil.
+
+Ryder's rugged appearance belied his sharp mind and quick wit, honed from years of navigating the complexities of ranching, cattle management, and small-town politics. His long, dark hair was tousled by a dusting of morning pollen, and a wispy beard framed his angular face. A worn leather duster coat hung loosely over his shoulders, flapping in the gentle breeze like a crimson flag.
+
+To his left, the sprawling ranch stretched out into the distance, a seemingly endless expanse of rolling hills and vast pastures, dotted with barns and fences that supported the Oakwood Ranch's 500 head of cattle. Ryder's family had owned the land for generations, and he took pride in continuing the tradition of hard work, dedication, and a deep love for this land.
+
+As he stood there, lost in thought, the distant sound of rustling cattle caught his attention, followed by the chime of a horse whinnying in the distance. Ryder's eyes narrowed, his gaze scanning the horizon as he prepared to face whatever challenges lay ahead on the Oakwood Ranch, where the sun would set over the vast expanse of the American West.

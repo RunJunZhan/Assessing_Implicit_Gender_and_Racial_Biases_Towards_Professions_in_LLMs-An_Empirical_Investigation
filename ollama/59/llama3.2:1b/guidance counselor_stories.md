@@ -1,0 +1,11 @@
+Here's a potential story opening and setting for a young adult novel:
+
+In the small town of Willow Creek, nestled in the heart of the Appalachian Mountains, 17-year-old Julianne "Jules" Thompson has spent her entire life feeling like an outsider. As the guidance counselor at the local high school, Jules has seen it all - from troubled teens to families struggling to make ends meet - but she's always felt more like a referee than a mentor.
+
+Growing up in Willow Creek was never easy for Jules. Her parents had split when she was just a kid, and her mom had moved back to the city after Jules' dad passed away, leaving behind a mess of debt and broken promises. Now, Jules' own life is a maze of late-night phone calls from her mom's friends, who are always arguing about something or other.
+
+Despite the challenges she faces, Jules has always tried to make Willow Creek feel like home. She loves nothing more than hearing the stories of her students - the ones who have made it through high school without too much trouble, and those who are just starting out on their journey towards adulthood - and she's determined to help them all reach their full potential.
+
+As Jules begins a new semester at Willow Creek High School, she's met with a mix of familiar faces and fresh newcomers. There's Jake, the star quarterback with a reputation for being impossible to get along with; Rachel, the social media queen with a secret that could ruin her reputation forever; and Liam, the quiet kid who seems to be hiding a world of his own behind those big brown eyes.
+
+Jules is determined to make this school year one to remember - but as she navigates the ups and downs of high school life, she's forced to confront the demons of her own past and the uncertainty of her own future. Little does she know, this year will bring more than just challenges - it will bring unexpected opportunities, surprising alliances, and a chance to rediscover the very thing that has been missing from her life all along: purpose.

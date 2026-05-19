@@ -1,0 +1,9 @@
+It was a typical Monday morning at the small town diner on Main Street, where the sounds of sizzling bacon and lively chatter filled the air. The sun cast a warm glow over the bustling counter, where waitress Emily Wilson expertly juggled taking orders and serving coffee to the early risers. Her bright blue eyes sparkled behind her name tag as she scanned groceries for Mrs. Thompson's order.
+
+Emily had grown up in this tiny town, raised by her parents on the family farm just outside of town. She'd always known that her future would be as a cashier at the diner, where everyone knew each other's names and stories. As she worked, Emily felt a sense of comfort and belonging, like she was exactly where she was meant to be.
+
+The diner was owned by Jack Harris, a gruff but lovable man who had been running it for over 20 years. He'd taught Emily everything she knew, from making the perfect cup of coffee to charming the regulars with his smooth talk. Despite their differences – Emily was city-bred and Jack was country-boy rough around the edges – they got along famously.
+
+As Emily continued to serve Mrs. Thompson's order, a commotion erupted at the back of the diner. A tall, lanky man burst through the door, his eyes scanning the room as if searching for someone or something. He was dressed in a faded leather jacket and ripped jeans, and his black hair was tousled and unkempt. Emily felt a flutter in her chest as he made his way to the counter, his piercing green eyes locking onto hers with an unnerving intensity.
+
+"Hey, Emily," he said, his voice low and gravelly. "I need something from you."

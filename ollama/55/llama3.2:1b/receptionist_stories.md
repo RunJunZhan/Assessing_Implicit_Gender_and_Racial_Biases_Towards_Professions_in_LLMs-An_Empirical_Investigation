@@ -1,0 +1,7 @@
+It was a typical Monday morning at Smith & Co., a small, family-owned medical practice in the heart of the city. The sun was shining through the large windows of the office, casting a warm glow over the bustling waiting room. Receptionist Emily Taylor checked her phone for what felt like the hundredth time that morning, her eyes scanning the messages from the doctor's office and the patients who had called in to schedule appointments.
+
+As she worked, the sounds of car horns and chatter filled the air, punctuated by the occasional rustle of papers or muffled conversation between patients. Emily's coworkers, including the charming but slightly disorganized doctor, Dr. James Parker, and the efficient administrative assistant, Rachel Patel, went about their day, each with their own tasks to complete.
+
+The office was a cozy space, decorated with vintage medical equipment and framed photos of former doctors and patients. A large wooden reception desk dominated the center of the room, beneath which Emily sat, ready to greet visitors and handle the day's schedule. The walls were adorned with motivational quotes and a few well-worn books on medicine, giving off a sense of warmth and welcome.
+
+It was just another ordinary Monday morning at Smith & Co., but for Emily, it was about to get a lot more interesting.

@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, nestled in the heart of rural Montana. The sky was a deep shade of purple, painted by the vast expanse of the Rocky Mountains to the west. The air was alive with the sweet scent of ripe apples and the earthy smell of just-cut grass.
+
+Meet August "Augie" Thompson, a ruggedly handsome construction worker in his late 30s, with a strong jawline and a messy mop of brown hair that always seemed to be sticking up in every direction. Augie had grown up on these very same mountains, learning the trade from his father before him, and working for the local company, Thompson Contracting, as a site supervisor.
+
+As he stepped out of his small apartment above the construction yard, Augie took a deep breath, feeling the cool mountain air fill his lungs. He stretched his arms and gave a loud yawn, shaking off the sleep. His worn denim shirt and faded construction vest were stained with yesterday's coffee and today's dust, but Augie didn't care – he loved this life.
+
+He lived for the thrill of building something from nothing, of watching a sprawling mountain meadow transform into a thriving garden or a sturdy new home. It was a feeling that never got old, and one that brought him a sense of pride and accomplishment every day. As he made his way to the truck, Augie's mind began to wander – what projects were on tap for the week? Would it be a new commercial development in town, or perhaps a renovation at the local school? The possibilities were endless, and Augie was eager to get started.

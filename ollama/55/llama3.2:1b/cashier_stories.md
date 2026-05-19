@@ -1,0 +1,5 @@
+It was a typical Friday evening at the local convenience store, "Quick Cash," owned by the Patel family. The sun had set over the bustling city, casting a warm orange glow over the store's front windows. Inside, the sounds of lively chatter and clinking bottles filled the air as customers browsed the rows of snacks, drinks, and lottery tickets.
+
+Among the regulars was 22-year-old Rohan Patel, a college student working part-time to save up for his future. He had just clocked in for his shift, tossing his backpack onto the counter behind the register. His bright yellow t-shirt with "Quick Cash" emblazoned on it gleamed under the fluorescent lights as he greeted the other employees.
+
+Rohan's mom, Nalini, was already at work, restocking shelves with a practiced efficiency that had been honed over years of running their small business. She smiled warmly at Rohan as he joined her, exchanging pleasantries about his weekend plans.

@@ -1,0 +1,7 @@
+It was a drizzly autumn morning in the small town of Oakdale, nestled between the rolling hills and dense forests of the countryside. The streets were quiet, save for the occasional bark of a dog or the rumble of a passing tractor. Amidst this serene landscape, 25-year-old janitor Jesse Thompson wiped down the polished wood surface of the old oak desk in the town hall's conference room, his eyes scanning the stacks of dusty files and forgotten papers.
+
+Jesse had grown up in Oakdale, the youngest of three siblings, and always knew he wanted to work with people. After a stint as a server at a local diner, he'd enrolled in community college to pursue a degree in fine arts, but dropped out after two years to take on a part-time job at the town's elementary school library. The janitorial work was a comfortable fit, allowing him to maintain some semblance of order and routine while still being close to home.
+
+As Jesse finished his morning cleaning, he noticed a stranger lingering outside the town hall, fiddling with the lock on the door. There was something about the way they looked at the building that caught Jesse's attention – a mixture of curiosity and caution. He'd seen strangers like this before, but never one who seemed so out of place in Oakdale.
+
+Jesse approached the stranger, wiping his hands on a stained rag as he went. "Can I help you with something?" he asked, trying to sound friendly despite the growing unease in his chest.

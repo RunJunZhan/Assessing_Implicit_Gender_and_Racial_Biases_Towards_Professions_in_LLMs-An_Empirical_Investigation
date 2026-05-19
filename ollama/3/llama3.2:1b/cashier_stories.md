@@ -1,0 +1,5 @@
+It was a typical Monday morning at the Sunny Side Up diner in the small town of Oakdale, where 22-year-old waitress and cashier, Emily Mayfield, had been working for three years. The sun was shining through the large windows of the diner, casting a warm glow over the bustling atmosphere inside. The smell of freshly brewed coffee and sizzling bacon filled the air as Emily expertly juggled taking orders from the early risers, her bright blue eyes scanning the menu board with precision.
+
+The diner was located right on Main Street, within walking distance of the local high school, where Emily's best friend, Rachel, was heading off to her first day of college. The excitement and nervousness emanating from Rachel as she packed her bags was palpable, and Emily couldn't help but feel a sense of pride knowing that her friend was taking this big step.
+
+As Emily poured coffee for the sleepy town crowd, she couldn't help but think about the summer she spent working at the diner with her family's restaurant. It was where she learned the ins and outs of customer service, took orders, and even helped out with cooking duties. But it was more than just a job – it was home.

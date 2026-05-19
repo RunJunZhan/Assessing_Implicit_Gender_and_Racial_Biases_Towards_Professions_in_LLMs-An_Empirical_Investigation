@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Oakdale, where the streets were lined with tall oak trees and the smell of freshly brewed coffee wafted from the local café. In a small shop on Main Street, "The Cutting Edge" was a staple for the community, run by 32-year-old barber extraordinaire, Emmet J. Blackwood III.
+
+Emmett, or Emmie as he was known to his friends and family, had always taken pride in his work. With a keen eye for detail and a passion for storytelling, he spent every waking moment perfecting his craft. His shop was not just a place where people came to get their hair cut, but also a gathering spot for the town's residents to share news and gossip.
+
+As Emmie began his day, he carefully selected a new scissor-blade for his latest client, Mr. Jenkins from next door. The man was due for an upgrade, given his receding hairline and tendency to get tangled in his own locks. As Emmie expertly trimmed the stray hairs away, Mr. Jenkins chatted with him about the upcoming town fair, where he was planning on selling homemade jam.
+
+The morning sun cast a warm glow over The Cutting Edge as Emmie worked, filling the air with the sound of clippers and chatter. The smell of bay rum and sandalwood wafted through the shop, transporting customers back to a time when life was simpler. Little did they know, today would be a day that would change everything for Emmet Blackwood III.

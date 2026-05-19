@@ -1,0 +1,9 @@
+It was a brisk autumn morning in the small town of Oakdale, nestled in the heart of rural Georgia. The sun rose over the sleepy streets, casting a warm glow over the quaint shops and homes. But amidst the peaceful atmosphere, a sense of unease settled over the local heavy equipment operator's shop.
+
+Alexander "Lex" Thompson, a rugged and imposing figure with a thick beard and a reputation for being one of the toughest operators in the business, stood outside his shop, sipping on a cup of coffee as he surveyed the day ahead. Lex had been operating heavy machinery for over two decades, and he knew every nook and cranny of the equipment that lay before him.
+
+As he gazed out at the rows of bulldozers, excavators, and cranes, his mind wandered back to the previous night's incident. A client had hired him to clear a section of land in a remote area, but things had taken a turn for the worse when a rogue tractor had broken free and was now wreaking havoc on the surrounding terrain.
+
+Lex's thoughts were interrupted by the sound of crunching gravel beneath his feet as he made his way towards the shop. He slipped into the back door, shutting it behind him with a soft thud. The interior of the shop was dimly lit, with only a few flickering overhead lights to guide his way. A worn leather chair sat at the center of the room, facing the large wooden workbench where Lex spent most of his time.
+
+Lex dropped into the chair, running a calloused hand over the rough surface as he took a deep breath. It had been a long day already, and he was looking forward to a quiet evening in, free from the chaos that usually surrounded him on site. But as he sat there, lost in thought, his phone buzzed in his pocket, shrill and insistent.

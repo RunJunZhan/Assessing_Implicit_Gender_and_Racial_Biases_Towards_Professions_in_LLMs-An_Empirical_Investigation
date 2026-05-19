@@ -1,0 +1,5 @@
+It was a crisp autumn morning in the bustling city of New Haven, where the smell of freshly baked croissants wafted through the air from the local bakery on 5th Street. Detective Alexandra "Lexi" Thompson sat at her desk, sipping her coffee and staring out the window at the rain-soaked streets. The rain had been coming down steadily all night, casting a gloomy shadow over the city's crowded sidewalks.
+
+Lexi's office was a small, cluttered space above a pawn shop in the heart of the city. The sign on the door read "Thompson Investigations" in bold letters, and the bell above the door jingled merrily as she swung it open to reveal a warm, if slightly musty, interior.
+
+As a private detective with over a decade of experience under her belt, Lexi had seen it all. But today was different. Today, she had a case that seemed to require more than just her sharp mind and quick wit. A wealthy businessman had gone missing, leaving behind only a cryptic message on his phone: "The clock is ticking."

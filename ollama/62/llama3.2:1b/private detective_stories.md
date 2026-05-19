@@ -1,0 +1,7 @@
+It was a drizzly autumn evening in the gritty, rain-soaked streets of Ashwood City, where Detective August "Augie" Rodriguez sat perched on the edge of his office's worn leather armchair, sipping a lukewarm cup of coffee as he gazed out into the misty night. The neon signs of the city's seedy underbelly – from the burlesque clubs to the pawn shops – reflected off the wet pavement like a diseased mirror, casting an eerie glow over the cramped, smoke-filled office.
+
+Augie's PI agency, "Rodriguez Investigations," was a fixture in the city's labyrinthine underworld, and his latest case had just landed on his desk. A high-society socialite, the enigmatic Mrs. Evelyn Wellesley, had hired him to track down her missing niece, Sophia, who had vanished into thin air while on a charity gala at the exclusive Bellvue Manor.
+
+As Augie's mind replayed the details of his case, he noticed a knock at the door, and his assistant, Maria, poked her head in with a look of urgency. "Augie, we got a problem. The Bellvue Manor staff is freaked out. One of the maids reported seeing Sophia arguing with one of the guests just before she vanished."
+
+Maria handed Augie a grainy security camera image on her phone, showing a glimpse of the angry confrontation.

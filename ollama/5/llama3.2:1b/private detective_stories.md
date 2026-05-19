@@ -1,0 +1,9 @@
+It was a crisp autumn evening in the bustling metropolis of New Haven, a city known for its rich history, cultural landmarks, and underbelly of corruption. The sun had long since set, casting a golden glow over the towering skyscrapers and quaint neighborhoods. Amidst the vibrant nightlife, a lone figure emerged from the shadows.
+
+His name was Julian Blackwood, a private detective with a reputation for being one of the best in the city. His dark hair was slicked back, revealing piercing green eyes that seemed to bore into those he met. A tailored suit, crisp white shirt, and a fitted black tie made him look like a man who knew his business.
+
+Julian stood outside the nondescript office building where his latest case awaited him. The entrance was flanked by two imposing stone statues of former New Haven mayors, their faces stern and unyielding. The door swung open with a soft creak, revealing a dimly lit hallway lined with old photographs and dusty file cabinets.
+
+As Julian stepped inside, the warm glow of neon lights and the hum of late-night chatter enveloped him. The air was thick with the scent of smoke and coffee, a testament to the city's perpetual energy. A bell above the entrance jangled softly as he entered his office, a small, cluttered space filled with stacks of papers, empty cups, and scattered notes.
+
+A single flicker of the computer screen behind the desk caught his eye, its glowing display casting an eerie light on the surrounding surfaces. Julian's gaze lingered for a moment, his mind already beginning to piece together the threads of the case that lay before him. He was a man who understood the city's rhythms and secrets, and tonight was going to be just another night of unraveling them.

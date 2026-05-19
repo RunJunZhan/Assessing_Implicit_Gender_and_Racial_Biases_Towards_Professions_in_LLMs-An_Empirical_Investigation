@@ -1,0 +1,5 @@
+It was a warm summer morning in the small coastal town of Tidestone, where the sound of seagulls filled the air and the smell of saltwater and freshly brewed coffee wafted through the streets. The sun was just starting to rise over the horizon, casting a golden glow over the quaint beachside town.
+
+Ava Wells, a 25-year-old hairdresser with curly brown hair and a warm smile, stood outside her salon, "Wells Cuts," sipping on a cup of coffee as she gazed out at the tranquil sea. She had spent countless hours perfecting her craft in this very same spot, watching sunrises and making waves – literally. Ava's passion for hairstyling was matched only by her love for the people who came to her salon, each with their own unique story and tale.
+
+As she finished her coffee, a knock on the door broke the silence, signaling the arrival of her first client of the day. Ava's heart skipped a beat as she wiped her hands on her apron, preparing herself for another busy morning ahead. Little did she know, today would be filled with more than just haircuts and conversations – it was about to get a whole lot more interesting.

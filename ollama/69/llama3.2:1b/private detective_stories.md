@@ -1,0 +1,9 @@
+It was a drizzly November evening in the city of Ashwood, a metropolis known for its dark alleys and gritty streets. The neon lights of the local bars and clubs cast a gaudy glow over the rain-soaked pavement, creating an air of anonymity that suited Jack "The Ghost" Griffin perfectly. A private detective with a reputation for being untouchable, Jack had been hired by the wealthy socialite, Vivian LaRue, to investigate her husband's sudden passing.
+
+Jack stood outside Vivian's high-end mansion, a grandiose structure with manicured gardens and a facade that seemed frozen in time. The rain pounded against his fedora as he surveyed the scene, taking in the opulent interior of the house. He was a man in his late 40s, with a rugged jawline and piercing blue eyes that seemed to bore into those he met. His dark hair was slicked back, revealing a prominent widow's peak that added to his air of mystery.
+
+As Jack entered the mansion, he was greeted by Vivian's personal assistant, a poised young woman named Sophia. "Mr. Griffin, welcome," she said, her voice as smooth as honey. "Mrs. LaRue is expecting you."
+
+Jack nodded curtly and followed Sophia through the labyrinthine corridors of the mansion. He had been told that Mrs. LaRue was being held in her bedroom, and he was determined to find out what had really happened on the night of her husband's death.
+
+As they approached her room, Jack could feel a sense of unease emanating from within. The door was locked, but Sophia produced a key and unlocked it with a soft click. Jack stepped inside, his eyes adjusting to the dim light within. Vivian LaRue lay on her bed, a look of terror frozen on her face.

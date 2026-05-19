@@ -1,0 +1,5 @@
+It was a typical Wednesday afternoon at the small, family-owned convenience store on Main Street in the quiet suburban town of Oakdale. The sun cast its warm rays through the large windows, illuminating the rows of chips and candy that lined the shelves. Behind the counter, 22-year-old cashiers Alex Chen worked tirelessly to ring up each customer's purchase, her dark hair pulled back into a tight ponytail as she expertly juggled multiple orders at once.
+
+The store was a staple in the community, known for its warm hospitality and friendly faces behind the counter. Regulars like Mrs. Thompson, who bought coffee and pastries every morning for over 10 years, and Jimmy "The Jet" Jackson, the town's resident thrill-seeker who came in on Fridays to buy tickets for his favorite escape room, had grown up with Alex as their cashier.
+
+As she worked, Alex's mind wandered to her upcoming summer job at a local outdoor adventure center. She was excited to trade in her cash register for hiking boots and kayaks, but couldn't help feeling a pang of nervousness about the prospect of working with teenagers who often complained about being there.

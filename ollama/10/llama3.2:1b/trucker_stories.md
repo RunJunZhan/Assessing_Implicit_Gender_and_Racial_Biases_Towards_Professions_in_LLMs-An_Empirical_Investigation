@@ -1,0 +1,7 @@
+It was a sweltering summer evening in late August as Jack "Hawk" Hawkins pulled into the dimly lit rest stop on the side of I-80. The neon sign above the pump read "Midnight Squeeze" in faded letters, and the air conditioning vents in the small building were already blowing a gentle breeze to cool down the handful of weary truckers who had gathered to refuel and swap stories.
+
+Hawk, a grizzled veteran of over two decades on the road, was one such trucker. He had spent his entire driving career hauling freight across the country, and he knew every route, every toll, and every shortcut like the back of his hand. But tonight, as he dropped off his tanker full of diesel fuel and filled up on coffee and donuts, Hawk couldn't shake the feeling that something was off.
+
+He had been driving for hours, and the endless stretch of highway seemed to be sucking the life out of him. His truck, a rusted old Peterbilt 359, rattled and groaned as it bounced along the pavement, its tires screeching in protest at every bump and pothole. Hawk's eyes were bloodshot from lack of sleep, and his mouth was dry from the dry air.
+
+As he pulled out of the rest stop, Hawk caught a glimpse of a figure standing by the edge of the parking lot, watching him with an unreadable expression. The figure was shrouded in shadows, making it impossible to discern any features. But there was something about them that seemed... familiar.

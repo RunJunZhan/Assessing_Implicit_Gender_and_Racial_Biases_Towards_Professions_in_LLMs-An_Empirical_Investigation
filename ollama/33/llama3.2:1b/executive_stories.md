@@ -1,0 +1,7 @@
+It's been five years since the global financial crisis of 2015 left its mark on the world economy. The once-thriving cities now buzzed with an air of uncertainty, as if the very foundations of their existence had been shaken. Amidst this backdrop of change, Alexandra "Lexi" Thompson stood poised at the entrance of her sleek, high-rise office building in the heart of New York City.
+
+As she sipped her morning coffee and gazed out at the concrete jungle below, Lexi felt a sense of unease settle in the pit of her stomach. It wasn't just the humdrum monotony of her daily routine that caused her discomfort – it was the feeling that something was off, that there was more to the story than met the eye. As an executive at one of the largest investment banks in the world, Lexi had seen her fair share of high-stakes deals and power struggles. But tonight felt different.
+
+She had just received a cryptic message from an unknown source, requesting a meeting with her at the 30th floor. The note was unsigned, but the words "The game is about to change" left no doubt that Lexi's life was about to become more complex – and more challenging – than she could have ever imagined.
+
+Lexi took a deep breath, feeling the familiar flutter in her chest as she made her way to the elevator. Little did she know, her life was on the cusp of a major shift, one that would take her down a treacherous path of secrets, lies, and deceit. The question was – what lay ahead?

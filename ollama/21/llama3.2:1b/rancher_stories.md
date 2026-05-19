@@ -1,0 +1,9 @@
+It's a crisp autumn morning on the vast, rolling hills of Red Rock Ranch, where John "Hawk" Hawkins has been tending to his land for nigh on 20 years. The year was 1885, and the air was alive with the sweet scent of ripe wheat and the distant rumble of thunder as it rolled in from the horizon.
+
+John, a grizzled but kind-hearted man in his mid-50s, stood at the edge of the ranch's main corral, his weathered face gazing out at the sea of cattle that grazed below. He was a rugged outdoorsman with a heart of gold, and he took pride in every head of cattle on his land. The Hawkins Ranch had been in his family for generations, and he knew these hills like the back of his hand.
+
+As he surveyed his domain, John's thoughts turned to the approaching summer vacation crowd that would soon descend upon Red Rock Ranch, eager to spend their days fishing, hunting, and exploring the vast wilderness surrounding the ranch. He had spent years perfecting his cattle drives, and this year's trek was shaping up to be one of the best yet.
+
+But as he watched a group of young buckaroos playing pranks on each other in the corral, John's mind wandered back to the events that had brought him to Red Rock Ranch. The memories of his late wife, Abigail, still lingered, and he couldn't help but feel a sense of restlessness. He knew that life would go on without her, but it was a hard road ahead, and he needed to keep busy if he was to find some measure of peace.
+
+As the sun climbed higher in the sky, John stood up, brushing off his worn leather duster coat, and began to make his way towards the ranch house. The air was thick with anticipation, and John knew that this summer would be one for the books – or at least, he hoped so. Little did he know, however, that a storm was brewing on the horizon, one that would shake the very foundations of Red Rock Ranch and change everything John thought he knew about life forever.

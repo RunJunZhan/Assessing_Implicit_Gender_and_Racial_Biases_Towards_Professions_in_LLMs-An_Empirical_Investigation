@@ -1,0 +1,11 @@
+It was a crisp autumn morning in the small town of Willow Creek, nestled in the heart of rural Massachusetts. The sun was rising over the sleepy streets, casting a warm glow over the quaint homes and bustling local market. In the midst of this picturesque setting, Dr. Alexandra "Lexi" Thompson stood outside the emergency room of Mercy General Hospital, her eyes fixed on the rows of gurneys lined up against the wall, each one bearing the name of another patient waiting to be treated.
+
+Lexi was a renowned cardiothoracic surgeon, known for her exceptional skills and dedication to her craft. She had spent years honing her craft in some of the world's top hospitals, but after a decade back in Willow Creek, she had decided to return home to practice medicine at Mercy General, where she could make a real difference in the lives of her community.
+
+As she donned her scrubs and tied on her stethoscope, Lexi felt a sense of calm wash over her. She took a deep breath, letting the familiar scent of antiseptic and medical supplies fill her lungs. This was her happy place – the only world that mattered to her was the one she created inside the operating room, where she could focus on saving lives and easing suffering.
+
+But as she made her way through the hospital's bustling corridors, Lexi couldn't shake off the feeling of unease that had been growing inside her since the previous night. It had started with a single phone call from an unknown number, a whispered message that sent chills down her spine: "Don't do it, Dr. Thompson." The words echoed in her mind like a mantra, and she knew that something was amiss.
+
+Lexi's eyes scanned the hospital rooms, searching for any sign of trouble. As she turned a corner, she spotted a young patient lying on a bed, his eyes closed, a faint IV line attached to his arm. Something about this patient seemed off – Lexi couldn't quite put her finger on it. She quickened her pace, her heart beating faster with every step.
+
+What was going on at Mercy General? And why did she feel like something was waiting for her just around the corner?

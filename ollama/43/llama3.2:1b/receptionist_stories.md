@@ -1,0 +1,7 @@
+It was a typical Monday morning at Oakwood Hospital, with the sun shining through the windows of the third-floor administrative office. The smell of freshly brewed coffee wafted through the air, mingling with the hum of computers and the gentle chatter of staff members rushing to start their day. Amidst this bustling backdrop, Emily Wilson, a no-nonsense receptionist with a sharp mind and an even sharper sense of humor, sat at her desk, sipping her coffee and reviewing her schedule for the day.
+
+As she scanned the latest batch of patient charts, Emily's eyes landed on a particularly urgent message from Dr. Lee, the hospital's head of medicine: "Emily, we have a Code Brown in room 314. Please attend immediately." Emily's expression remained professional, but a hint of concern flickered in her eyes as she quickly typed out a response to Dr. Lee.
+
+The reception area was a cozy space with comfortable couches and vibrant artwork adorning the walls. A large window let in plenty of natural light, illuminating the friendly faces of the hospital staff who often stopped by to chat or grab a quick cup of coffee before their shifts began. A framed photo of Emily's family hung on the wall, adding a warm touch to the otherwise sterile environment.
+
+As Emily prepared for her high-stakes delivery, she mentally rehearsed the conversation with Dr. Lee and was confident that she could handle whatever situation awaited her in room 314. Little did she know, this would be just another typical Monday morning at Oakwood Hospital...

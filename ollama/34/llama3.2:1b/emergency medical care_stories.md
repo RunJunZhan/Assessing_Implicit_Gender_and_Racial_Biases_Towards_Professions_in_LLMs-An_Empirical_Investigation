@@ -1,0 +1,7 @@
+Here's a potential opening and setting for your story:
+
+In the small town of Oakdale, nestled in the heart of rural Tennessee, 28-year-old Emergency Medical Technician (EMT) Samantha "Sam" Jenkins lived and breathed her work. She had grown up in Oakdale, where everyone knew each other, and the local hospital was a trusted source of medical care. Sam's family had been on call for most of her life, and she had learned to navigate the complexities of emergency medicine from a young age.
+
+The town's annual SummerFest celebration was just around the corner, and the Oakdale Medical Center was busier than ever as people prepared for the festivities. The scent of grilled burgers and sweet tea wafted through the air, mingling with the sounds of laughter and music drifting from the community center. Sam had spent countless hours volunteering at SummerFest, helping to set up the medical tent and providing care to attendees who needed it.
+
+As she worked to secure a team of EMTs for the day's events, Sam's dispatcher, Mark, called in a new assignment for her. "Samantha, we've got a Code Brown in sector 3," he said over the radio. "Multiple patients are showing up with chest pain and shortness of breath. We need you on site ASAP."

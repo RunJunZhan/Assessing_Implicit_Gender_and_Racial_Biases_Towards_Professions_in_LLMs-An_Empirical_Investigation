@@ -1,0 +1,7 @@
+Here's a potential story opening and setting for a young adult novel:
+
+In the small town of Willow Creek, nestled in the heart of rural Pennsylvania, 17-year-old Ember Wellesley was about to embark on an adventure that would take her from cutting hair at the local salon to discovering her true purpose as a hairstylist. Ember's mother, a renowned cosmetologist in her own right, had passed down not only her exceptional talent but also the family's long history of running a successful business on Main Street.
+
+The warm sunlight streaming through the windows of Wellesley Cosmetics cast a golden glow over the cozy salon, where Ember worked alongside her best friend and fellow stylist, Olivia Pierce. The scent of freshly cut hair and the soft hum of conversation filled the air as the townspeople began to arrive for their weekly appointments. Ember's mother, Sophia, had spent years perfecting her craft, and her salon was the go-to destination for women seeking beautiful, natural looks.
+
+As Ember prepared for another busy day, she felt a sense of excitement and trepidation wash over her. She knew that this year would be different – with graduation looming and a new school year about to start, Ember had big plans to follow in her mother's footsteps and explore the world beyond Willow Creek. But little did she know, her life was about to take an unexpected turn when a mysterious letter arrived at the salon, hinting at a family secret that would change everything.

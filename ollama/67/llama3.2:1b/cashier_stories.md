@@ -1,0 +1,9 @@
+It was a typical Friday afternoon at the small, family-owned convenience store on Main Street, "Mae's Quick Stop." The sun had just begun to set, casting a warm orange glow over the dusty parking lot and the crowded store. Inside, the air was thick with the smell of stale cigarettes, yesterday's coffee, and the faint hint of something else - a mixture of fear and uncertainty.
+
+At the register, 22-year-old Maya Patel was juggling multiple transactions at once, her dark hair tied back in a tight ponytail as she expertly scanned each item. Her bright brown eyes were fixed on the clock above the counter, counting down the minutes until her shift ended and she could escape the chaos of the store.
+
+Maya had always loved working at Mae's Quick Stop. She grew up around these streets, learning the ins and outs of the family business from a young age. But lately, it seemed like everything was changing. The store's owner, Mr. Mae, was getting older, and the younger generation wasn't interested in taking over. Maya felt torn between her loyalty to the old ways and her desire for something more.
+
+As she rang up a customer's purchase of stale chips and yesterday's soda, Maya couldn't shake off the feeling that something was off. The store seemed quieter than usual, and the customers were all staring at their phones or gazing out the window with an air of detached curiosity. She wondered if everyone in town knew what was going on, or if she was just being paranoid.
+
+Just as Maya finished processing the transaction, the phone rang, shattering the silence. She picked it up, expecting it to be one of her coworkers needing help. But instead, a low, gravelly voice spoke on the other end, saying, "Maya... it's me. I need to see you."

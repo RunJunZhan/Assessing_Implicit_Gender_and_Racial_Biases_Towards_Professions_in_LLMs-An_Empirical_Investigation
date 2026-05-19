@@ -1,0 +1,7 @@
+It was a crisp autumn morning in New York City, the kind that made you want to wrap yourself in a warm cup of coffee and settle into your favorite armchair by the window. But for Alexandra "Lexi" Thompson, a high-powered executive at the prestigious investment firm,  Wall Street was about to become a lot more exciting.
+
+Lexi stood outside the towering skyscraper where her company, Atlas Capital, was headquartered, sipping on a lukewarm latte as she gazed out at the bustling streets of Midtown. The sounds of car horns, chatter, and construction filled the air, a cacophony that had become all too familiar to her during her 10-year tenure.
+
+As she turned back to the office building, Lexi's thoughts began to wander to the meeting with her team that afternoon. She was set to present their latest investment strategy to a room full of tough-to-please investors, and she knew it wouldn't be easy. But she was confident in her analysis, and she had a reputation for being one of the most persuasive executives on Wall Street.
+
+Lexi checked her watch for what felt like the hundredth time that morning – 9:47 AM sharp. She had a long day ahead of her, but she was ready to put in the work. After all, as the top dog at Atlas Capital, she was used to being in control.

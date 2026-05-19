@@ -1,0 +1,9 @@
+It was a typical Wednesday morning at "Clip and Care," the small, family-owned salon where Emma Taylor had spent her entire career. The sun was shining through the windows, casting a warm glow over the rows of gleaming hair scissors and clipper stations. Emma, a 28-year-old woman with curly dark hair and bright hazel eyes, stood behind the counter, sipping her coffee and checking her phone for the day's appointments.
+
+As she scanned the schedule, Emma's mind wandered to the chaos that lay ahead. The salon was packed with families celebrating birthdays, weddings, and graduations, all clamoring to get their locks trimmed and styled. She had been working at Clip and Care for five years, and in that time, she had developed a loyal client base of young professionals and stay-at-home moms who appreciated her warm smile and expert cutting skills.
+
+But despite the bustle, Emma felt a sense of calm wash over her as she thought about the special day ahead. Her niece, Lily, was turning 10 years old, and Emma had been looking forward to spending the day with her for weeks. They would spend hours in the salon, getting Emma's hair styled, while Lily played games on her tablet or read a book.
+
+As the doorbell above the entrance jangled, signaling the start of the next customer, Emma smiled and made her way to greet them. "Good morning, sweetie! What can I do for you today?" she asked, eyeing the busy waiting area where families chatted nervously and children played with coloring books.
+
+Lily's bright smile lit up the room as she held out a large, stuffed tiger bear. "Emma, please make me look like Princess Elsa from Frozen!" she exclaimed, her eyes shining with excitement.

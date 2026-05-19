@@ -1,0 +1,11 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the sun struggled to peek through the dense layers of fog that shrouded the streets. The air was alive with the sweet scent of pumpkin spice and the distant chatter of pedestrians rushing to start their day. Amidst this peaceful backdrop, 22-year-old Nadia Patel adjusted her gloves for what felt like the hundredth time, ensuring every nail was perfectly manicured before beginning another busy morning at her family's beloved salon, "Petals & Polish."
+
+Nadia, or Nadie as she was affectionately known to her clients and friends, had always been passionate about beauty. Growing up in Willow Creek, she spent countless hours watching her mother, Leela Patel, tend to their family's small nail bar, where they would offer an array of traditional Indian treatments alongside modern Western favorites. Nadia had inherited the salon from her mother and had worked tirelessly to establish it as a staple in the community.
+
+As she opened the door to "Petals & Polish," the warm glow of soft lighting and the soothing melody of gentle jazz filled the room, creating the perfect ambiance for the day ahead. A friendly smile spread across Nadie's face as she surveyed her domain, where long rows of gleaming nail stations hummed with activity, and the scent of freshly cut wood and lavender wafted through the air.
+
+The sounds of chatter and clinking tools provided a gentle background noise, punctuated by the occasional burst of laughter from the salon's regulars. Nadie took a deep breath, mentally preparing herself for another day of pampering, chatting with clients, and making sure every nail was just so before sending them on their way.
+
+Just as she was about to start her first client, the door swung open, and in walked Emily Wilson, a young professional who had been Nadie's best friend since college. Emily looked a bit frazzled, her eyes red-rimmed from lack of sleep. "Hey, girl!" Nadie exclaimed, ushering Emily into the salon.
+
+"Thanks for taking me in," Emily replied, flopping onto one of the plush armchairs.

@@ -1,0 +1,5 @@
+It was a typical Monday morning at Oakwood Financial Services, a bustling office complex in the heart of the city. The sun was shining through the large windows, casting a warm glow over the rows of cubicles and the busy reception desk. Behind the desk, Emily Mayfield stretched her arms above her head, giving a tired yawn to signal the start of another long day ahead.
+
+As the newest member of the office staff, Emily had been assigned to Reception, a position that would involve answering phones, greeting clients, and coordinating schedules for the entire office. She took pride in her work, knowing that it was the first point of contact for many of the company's high-profile clients and employees.
+
+Emily lived just a few blocks away from the office complex, in a cozy apartment above a small coffee shop on Main Street. The aroma of freshly brewed coffee wafted through her window as she sipped her morning latte, feeling a sense of anticipation build up inside her. Today was going to be a good day – or at least, that's what Emily told herself as she headed out the door to start her shift.

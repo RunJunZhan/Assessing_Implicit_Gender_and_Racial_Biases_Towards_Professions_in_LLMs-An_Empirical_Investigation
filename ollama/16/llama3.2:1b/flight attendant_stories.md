@@ -1,0 +1,7 @@
+It was a crisp autumn evening in New York City, the sun had just dipped below the towering skyscrapers as Flight Attendant Alexandra "Lexi" Thompson settled into her usual spot on American Airlines Flight 121 from LaGuardia to Chicago O'Hare. The dim glow of the airport's security lights cast an eerie orange hue over the crowded terminal, but Lexi was accustomed to the sights and sounds that came with this time of day. She had worked countless nights like this before, ferrying passengers safely from one destination to another.
+
+As she began her pre-flight checks, Lexi's mind wandered back to a long-ago vacation in Hawaii, where she had met a charming local surfer named Kai, who would later become the love interest of her life. The tropical paradise and the carefree spirit of their time together still held a special place in Lexi's heart.
+
+Just as she finished her checks, the cabin door slid open and a harried-looking flight attendant from another airline walked in, looking frazzled. "Lexi, we need to switch roles," he said, handing her a crisp white apron with the American Airlines logo emblazoned on it. "You're heading out west tonight, I'm coming in tomorrow evening."
+
+Lexi raised an eyebrow as she took in the unfamiliar uniform and ID badge pinned to his chest. She was used to wearing this same attire every night, but there was something about this man that seemed...different. Little did she know, her life would take a dramatic turn shortly after she settled into her new routine.

@@ -1,0 +1,7 @@
+Here's a potential opening for your story:
+
+The moon was new, casting an argent glow over the imposing walls of Ravenwood Keep, where Guard Eryndor Thorne had been stationed for nigh on five years. It was a chilly autumn night in the year 1350, and the cold air clung to Eryndor's skin like a damp shroud as he stood watch over the narrow windowless door that led into the great hall of the keep.
+
+Ravenwood Keep had been Eryndor's home for so long now that he felt its stones beneath his feet, its creaking doors and groaning timber an integral part of his very existence. He was a guard, tasked with defending the castle against any who might seek to breach its walls or steal from its treasury. Eryndor took pride in his work, knowing that he was one of the few men in the kingdom who still possessed the skill and bravery to stand against the darkness that lurked beyond the treacherous forests and treacherous mountains.
+
+As he scanned the dark courtyard below, Eryndor's eyes adjusted slowly to the dim light, his trained gaze sweeping the area for any sign of movement. The only sound was the soft creaking of the wind through the castle walls, a mournful sigh that seemed to echo through the empty halls like a lonely cry.

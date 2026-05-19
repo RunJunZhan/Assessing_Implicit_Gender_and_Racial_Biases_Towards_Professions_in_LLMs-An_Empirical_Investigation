@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the historic hotels of downtown New Haven, Connecticut. The sun had barely risen over the rooftops, casting a warm glow over the bustling lobby of the Bellvue Hotel. Among the throngs of guests checking in and out, one person stood out - 22-year-old bellhop, Emilia "Mia" Thompson.
+
+Mia, with her dark hair tied up in a messy bun and a warm smile, expertly carried a tray of fresh towels and toiletries to a family of four who had just arrived from a long-haul flight. She chatted effortlessly with the parents, 35-year-old Mark and 32-year-old Rachel, as she unloaded their belongings onto the polished wooden floor.
+
+As Mia worked her magic on the family's linens, she couldn't help but think about how much she loved this job. There was something about being a bellhop that made her feel like a small-town fixture, a trusted member of the hotel staff who knew everyone's name and their story. And yet, despite the familiarity, Mia felt a thrill of excitement as each new day brought its own set of challenges and surprises.
+
+As she finished up with the family and began to make her way back to the lobby, Mia noticed a piece of paper on the floor caught in the crack between the floorboards. She bent down to pick it up, revealing a cryptic message scrawled in red ink: "They're watching you."

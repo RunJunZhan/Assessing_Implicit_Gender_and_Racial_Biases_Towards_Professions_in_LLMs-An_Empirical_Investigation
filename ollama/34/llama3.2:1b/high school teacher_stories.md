@@ -1,0 +1,5 @@
+It was a crisp autumn morning in the small town of Oakdale, nestled in the heart of rural Illinois. The sun was just starting to rise over the horizon, casting a warm golden light over the quaint streets and homes. In the midst of this peaceful atmosphere, a sense of unease settled over 35-year-old high school teacher, Emily Mayfield.
+
+Emily's classroom was located in the old Oakdale High School building, which loomed above the town square like a giant sentinel. The once-thriving institution had seen better days, with peeling paint and broken glass littering the hallways. But despite its neglected state, Emily took pride in her job as a guidance counselor at Oakdale High. She had a way of making even the most challenging students feel seen and heard.
+
+As she sipped her coffee and gazed out the window, Emily couldn't shake off the feeling that something was amiss. A strange letter had arrived at school just last night, hinting at a dark secret lurking in the shadows of Oakdale's past. The letter had been anonymous, but its words sent shivers down Emily's spine: "You're not who you think you are."

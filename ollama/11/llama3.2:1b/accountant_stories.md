@@ -1,0 +1,6 @@
+Here's a potential story opening:
+In the sleepy town of Willow Creek, nestled in the heart of the Appalachian Mountains, financial analyst and number-cruncher Emily Maynard sat at her desk, staring out the window as she stared at the spreadsheet on her computer screen. The autumn leaves were rustling outside, casting dappled shadows on the floor as she tried to focus on the intricacies of a particularly complex tax return.
+
+Emily was a 35-year-old native of Willow Creek, born and raised in the small town's old mill village. She had always been good with numbers, but it wasn't until she landed her job at Smith & Co., a prestigious accounting firm in the city, that she discovered her true passion for finance. Now, as one of the firm's top accountants, Emily was known for her attention to detail and ability to find creative solutions to even the most complex problems.
+
+But little did anyone know, Emily had a secret: she had inherited a small amount of money from a distant relative long ago, and she was determined to leave it in the will, rather than subjecting herself to the taxes that would be required. The problem was, her relatives had no idea about the inheritance, and Emily knew that if she wanted to keep it for herself, she'd have to come up with some pretty convincing alibis...

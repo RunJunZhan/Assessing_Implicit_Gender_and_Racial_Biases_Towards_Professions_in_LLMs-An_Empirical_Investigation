@@ -1,0 +1,9 @@
+It's a crisp autumn morning in the small town of Willow Creek, nestled in the heart of rural Colorado. The sun rises over the dusty streets, casting a warm glow over the quaint shops and homes. The air is filled with the sweet scent of ripe apples from the local orchard, and the sound of birds chirping echoes through the trees.
+
+At the corner of Main and Elm Streets stands the iconic Willow Creek Roofing Company, a family-owned business that has been serving the community for generations. The sign creaks in the gentle breeze, bearing the logo of the company's founder, Julian Blackwood. Inside, the smell of freshly cut wood and paint fills the air as roofer Jack "Hawk" Hawkins begins his daily routine.
+
+Jack is a ruggedly handsome man in his mid-40s with a strong jawline and piercing blue eyes that seem to see right through you. His dark hair is flecked with gray, and he sports a thick beard that's perfectly suited for the hard work of a roofer. He's been working on roofs since he was a teenager and has honed his skills over the years to become one of the best in the business.
+
+As Hawk makes his way through the morning routine, checking the schedules for his apprentices and planning his day's tasks, he can't help but feel a sense of pride and satisfaction. There's something special about being able to create something from nothing – whether it's a new roof or a fresh coat of paint – that gives him a sense of purpose and fulfillment.
+
+But little does Hawk know, today is going to be different. A storm system is brewing on the horizon, one that will put his skills to the test like never before...

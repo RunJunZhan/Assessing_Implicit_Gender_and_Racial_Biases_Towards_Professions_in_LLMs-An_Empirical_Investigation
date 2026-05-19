@@ -1,0 +1,5 @@
+Here's a potential story opening and setting:
+
+The sun was just starting to peek over the sleepy suburban streets as Jack "Hawk" Hawkins made his way down the ladder of his trusty old scaffolding, his bright orange hard hat a beacon of color in the morning mist. He had been a roofer for over 20 years, and this quiet neighborhood on the outskirts of town was one of his favorite gigs - watching the world go by from the comfort of his own two feet. As he worked on repairing the leaky roof of the Johnson's old Victorian home, Hawk couldn't help but feel a sense of pride and satisfaction in a job well done. But little did he know, today would be different.
+
+Setting: The suburban neighborhood where Jack "Hawk" Hawkins works as a roofer, with its quaint streets lined with tidy houses and a vibrant community garden.

@@ -1,0 +1,6 @@
+Here's a potential story opening:
+The sun was setting over the vast, open range of the Red Rock Ranch, casting a warm orange glow over the dusty terrain and the sprawling herd of longhorns that grazed peacefully in the distance. Jack Reed, a ruggedly handsome man in his mid-40s with a thick beard and a strong jawline, stood at the edge of the ranch, his boots scuffling against the dry earth as he surveyed the land from his favorite spot on the porch of his rustic ranch house. The smell of sagebrush and horse sweat filled the air, mingling with the distant sound of cattle lowing in the pasture below.
+
+It was a chilly autumn evening in rural Montana, and Jack had just finished a long day of work, riding out to check on the herd and making sure they were healthy and happy. As he took a sip from his canteen, he felt a sense of contentment wash over him - this was what he loved about being a rancher: the freedom to live off the land, the satisfaction of working with the creatures that had given their all to provide for him.
+
+But as Jack gazed out at the vast expanse of wilderness stretching before him, he couldn't shake the feeling that something was off. A sense of unease, of foreboding, that he couldn't quite put his finger on...

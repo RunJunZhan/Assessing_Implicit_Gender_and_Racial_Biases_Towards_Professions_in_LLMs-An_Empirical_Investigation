@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small coastal town of Tidesville, where the smell of saltwater and freshly brewed coffee wafted through the air as the sun rose over the sleepy streets. Amidst the bustling town square, where old-fashioned street performers juggled and played music to draw in the crowds, 25-year-old photographer Emilia "Mia" Thompson stood atop a worn wooden bench, her camera slung over her shoulder and a mischievous glint in her eye.
+
+As she gazed out at the waves crashing against the shore, Mia felt a sense of peace wash over her. She had always been drawn to the ocean's power and beauty, and spent most of her free time capturing its majesty through her lens. Her studio, tucked away on Oceanview Drive, was a reflection of this passion - colorful prints and Polaroids lined the walls, and a large wooden easel stood in the corner, where she carefully arranged her latest batch of photographs.
+
+Mia's phone buzzed with an incoming text from her best friend and fellow photographer, Lily. "Hey girl! Just got back to the studio and I've got a lead on a gig at the Tidesville Beach House tonight. Want to come?"
+
+Mia grinned as she typed out a response, her fingers flying across the screen. She loved these nights - the crowds, the glamour, and of course, the endless opportunities to capture the perfect shot. But more than anything, she adored Lily's infectious energy and the two girls had been planning this night together for months.

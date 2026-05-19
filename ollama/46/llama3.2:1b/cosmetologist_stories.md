@@ -1,0 +1,7 @@
+It was a warm summer evening in the small coastal town of Tidal Cove, where the scent of saltwater and freshly cut grass filled the air. The sun had just set behind the horizon, casting a golden glow over the quaint streets and shops. In a small salon on Ocean Boulevard, hair stylist Alexandra "Alex" Thompson was busy preparing for another night of pampering and transformation. Her salon, "Tresses & Tranquility," was renowned for its unique blend of cutting-edge techniques and warm, welcoming atmosphere.
+
+As Alex expertly curled the hair of a new client's wedding party photo shoot, her mind wandered to the upcoming gala at the local yacht club. She had been booked solid with clients all week, but she couldn't help feeling a sense of excitement and nervousness. It was going to be one of her biggest events yet, and she wanted to make sure every guest left feeling like royalty.
+
+Alex's phone buzzed with an incoming text from her best friend and business partner, Lucy. "Hey girl, just got the most gorgeous wedding dress you've ever seen," Lucy wrote. "You need to know – it's a one-of-a-kind designer gown that's going to make our clients' bridesmaids go wild."
+
+Alex's eyes widened with envy as she read the message. She knew how much Lucy loved designing and creating, and this new dress was going to be a game-changer for Tresses & Tranquility. Little did Alex know, tonight would bring not only hair and makeup for the wedding, but also opportunities that would take her salon and herself to new heights.

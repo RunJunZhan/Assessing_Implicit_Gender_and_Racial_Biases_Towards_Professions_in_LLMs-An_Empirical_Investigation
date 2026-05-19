@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the small town of Oakdale, nestled in the heart of rural Virginia. The leaves on the oak trees outside the windows of the local coaching studio were ablaze with color, a vibrant orange and red that seemed to glow in the early sunlight. Coach Rachel Thompson stood outside her own coaching studio, a modest but cozy building on Main Street, surveying the scene before her. She was a 45-year-old woman with short, curly brown hair and piercing green eyes that seemed to bore into those she met. Her dark jacket was slung over one shoulder, and a small backpack held her team's gear.
+
+Rachel had been coaching volleyball for 15 years, and Oakdale High School was the first stop on her list of current teams. She had a reputation in town as a fierce competitor who pushed her players to be their best selves both on and off the court. As she took a deep breath, feeling the cool morning air fill her lungs, Rachel smiled to herself. Today was going to be a great day – a 7:00 AM team practice to get her squad ready for the upcoming district tournament.
+
+Just as she was about to head inside, a black SUV pulled up outside, and a tall, imposing figure stepped out onto the sidewalk. He was dressed in a crisp business suit and had a stern expression on his face. Rachel recognized him immediately – he was the new athletic director at Oakdale High School, and he had been making waves around town with his strict expectations and high standards.
+
+"Coach Thompson," he said, his voice firm but controlled. "I wanted to speak with you about your team's performance in practice yesterday."
+
+Rachel nodded warily, her eyes narrowing slightly as she took in the stranger's imposing figure. She knew that this was going to be a conversation she didn't want to have...

@@ -1,0 +1,6 @@
+Here's a potential story opening:
+In the heart of downtown Los Angeles, where the sun-kissed streets gave way to the dimly lit alleys of Little Tokyo, 27-year-old paralegal, Alexandra "Lexi" Thompson, sat at her small desk, sipping on a lukewarm cup of coffee as she stared out the window at the sprawling metropolis below. The year was 2003, and Lexi's life was a monotony of billable hours and spreadsheets, but in her mind, she was a different person - a free-spirited artist, living life on her own terms.
+
+But Lexi's life was about to take a drastic turn. A mysterious letter arrived at her office that morning, informing her that her estranged father, a renowned lawyer who had always been absent from her life, was facing deportation back to Mexico due to a complex case involving his past immigration status. The letter ordered Lexi to appear in court on a Friday evening, with no warning or explanation.
+
+Lexi's heart sank as she gazed out the window, her mind racing with possibilities and fears. She had always known that her father was hiding secrets from her, but she never imagined that they would put her own life in danger. As she sat there, lost in thought, a sudden knock at the door broke the silence, shattering Lexi's reverie...

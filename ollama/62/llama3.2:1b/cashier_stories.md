@@ -1,0 +1,5 @@
+It's a typical Monday morning at the small-town diner where Alex Chen had worked as a cashier for the past five years. The sun was just starting to peek through the grimy windows of the diner, casting a warm glow over the bustling atmosphere inside. The smell of freshly brewed coffee and the hum of conversation filled the air, accompanied by the occasional clang of pots and pans in the kitchen.
+
+Alex, a 28-year-old Asian-American woman with long, dark hair tied up in a ponytail, stood behind the counter, her eyes scanning the line of customers waiting to be served. She had grown accustomed to the quiet morning routines of small-town life, but it still felt like yesterday that she'd started working at the diner as a college student, hoping to save money and gain some work experience.
+
+As the line inched forward, Alex's mind began to wander back to her plans for the day. She had a few errands to run – pick up some groceries on the way home from work, drop off some dry cleaning – but she hadn't expected it to be as chaotic as it was. The phone rang, and Alex answered it to find out that her boss was calling to remind her of an upcoming shift change.

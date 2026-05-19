@@ -1,0 +1,5 @@
+It was a warm summer evening in the small coastal town of Tidestone, where the scent of saltwater and freshly brewed coffee wafted through the air from the local café. At the helm of this cozy watering hole, Jack "Hawk" Hawkins poured drink after drink with ease, his bright blue eyes crinkling at the corners as he smiled at the regulars.
+
+The sun had set hours ago, but the crowd remained, laughing and chatting over pints of ice-cold beer or steaming cups of coffee. Hawk had owned The Daily Grind for five years now, and it was a staple in Tidestone – a place where locals and visitors alike could gather to escape the summer heat and find a friendly ear.
+
+As he wiped down the bar with a dirty rag, a new face caught his attention. A woman with piercing green eyes and long, curly brown hair had just walked in, her shoulders back and a confident air about her. Hawk's gaze lingered on her for a moment before returning to the task at hand. Who was this mysterious stranger, and what brought them to Tidestone?

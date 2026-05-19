@@ -1,0 +1,7 @@
+It's a typical Monday morning in late spring, with a warm sun beating down on the dusty town of Red Rock. The air is thick with the smell of freshly cut grass and the distant rumble of diesel engines. In the heart of this small community, 25-year-old Ryder "Raven" Thompson lives and works as a heavy equipment operator for Raven's Heavy Equipment Rentals.
+
+Raven's rugged, bronzed skin and strong jawline are testaments to his years spent operating heavy machinery in all kinds of weather conditions. He stands at 6'2" with an athletic build, honed from years of working on construction sites and ranches across the American West. A black leather jacket and ripped jeans are his staple attire, a reflection of his tough yet reliable nature.
+
+Raven's small, family-owned hardware store is tucked away in the heart of Red Rock, its wooden sign creaking gently in the breeze. Inside, the air is thick with the smell of freshly sharpened tools and the sound of hammering on metal. The shelves are lined with an assortment of construction equipment parts, tools, and supplies, a testament to Raven's vast knowledge of heavy machinery.
+
+As he sips his coffee and checks his schedule for the day, Raven glances out the window, his eyes scanning the horizon for any signs of trouble. He knows that in this small town, anything can happen at any time – from a wild animal sighting to a breakdown on one of his rental trucks. But with his expertise and years of experience, Raven is always ready to face whatever challenge comes his way.

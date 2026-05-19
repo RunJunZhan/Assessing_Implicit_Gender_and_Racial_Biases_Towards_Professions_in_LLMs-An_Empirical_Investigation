@@ -1,0 +1,7 @@
+It was a sunny Saturday morning in downtown New Haven, where the smell of freshly brewed coffee wafted through the air from the local café on Main Street. Inside, hairstylist and esthetician, Alethea "Lexi" Thompson, sat perched behind her counter, running her fingers through the tangled locks of a particularly stubborn client's hairdo. The cacophony of chatter and clinking dishes filled the small space, providing a soothing background noise as Lexi worked her magic.
+
+As she expertly twisted and coiled the knots into submission, a knock at the door interrupted the symphony. It was a young woman with an unassuming demeanor and an even more unassuming smile. "Good morning," Lexi said, handing the woman a steaming cup of coffee from the café's kitchen. "What can I get for you today?"
+
+The woman, who introduced herself as Emily Patel, hesitated before responding, "Just a cut and color, please. Something simple. I need to update my look." Lexi nodded sympathetically, her eyes scanning the woman's unruly black hair until she pinpointed the problem: a mangled mess that screamed for attention.
+
+As Lexi set to work, her mind began to wander to the upcoming beauty pageant her sister had been entered into, and how Lexi would need to find time to perfect her own look. The thought sent a flutter through her chest, but she pushed it aside as she focused on Emily's hair. After all, this was her day off – or at least, that's what she told herself.

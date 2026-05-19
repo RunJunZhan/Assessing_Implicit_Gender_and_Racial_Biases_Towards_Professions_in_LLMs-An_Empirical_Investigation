@@ -1,0 +1,7 @@
+It's a crisp autumn morning in the small town of Oakdale, where the streets are lined with tall trees and the air is filled with the sweet scent of ripe apples. The sun rises over the horizon, casting a warm glow over the bustling Main Street, where locals and visitors alike gather to start their day.
+
+In a small construction site on Elm Street, Jack "Hawk" Hawkins is already up and getting ready for another long day of work. Hawk is a ruggedly handsome man in his late 30s, with a thick head of curly brown hair and a scruffy beard that he's always sporting. He's been working on this site for over a decade, and has earned the respect of his colleagues and the admiration of his clients.
+
+As Hawk emerges from his small cabin-style trailer that serves as his office, he takes a deep breath of the cool morning air and cracks his knuckles in preparation for the day ahead. His worn jeans and scuffed work boots are a testament to his love of manual labor, and his faded Oakdale High School football jersey is emblazoned with the school's logo on the back.
+
+Hawk's phone rings as he starts to get ready for work. It's his foreman, Mike, calling to brief him on the day's schedule. Hawk answers on the first ring, "Morning, Mike! What's the plan for today?"

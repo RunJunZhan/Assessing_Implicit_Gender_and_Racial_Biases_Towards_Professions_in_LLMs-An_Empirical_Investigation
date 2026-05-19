@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, where Dr. Emily Maynard had just arrived at the local hospital after completing her residency in surgery. The sun was shining down on the quaint streets and homes, casting a warm glow over the bustling medical center. As Emily stepped out of her car and onto the sidewalk, she felt a sense of excitement and nervousness wash over her. This was her first solo surgical case at Oakwood General Hospital, and she was determined to make a good impression.
+
+Emily had grown up in Willow Creek, where her parents owned a small medical clinic just outside town. She had always been drawn to the operating room, mesmerized by the precision and skill required to repair even the smallest of injuries. After completing medical school and a residency in surgery, Emily had returned to her hometown to practice as an attending surgeon at Oakwood General Hospital.
+
+As she walked into the hospital's main lobby, Emily was greeted by the friendly face of the receptionist, who showed her to her locker before escorting her to the operating room. The OR was just down the hall from here, and Emily couldn't help but feel a thrill of anticipation as she made her way through the sliding glass doors.
+
+The OR was dimly lit, with only a few overhead lights illuminating the rows of surgical tables. Emily took a deep breath, adjusting her scrubs before heading to the conference table where her attending surgeon, Dr. James Parker, would be waiting for her.

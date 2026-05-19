@@ -1,0 +1,7 @@
+It was a chilly autumn evening in rural Nebraska, the kind of night that made you want to curl up with a warm cup of coffee and a good book. But for Jack "Hawk" Hawkins, the allure of the open road was too great to resist. He settled into the worn leather seat of his Peterbilt 359, feeling the familiar contours of the dashboard beneath his fingers as he prepared for another long haul across the country.
+
+As he hit the highway, the cornfields and soybean fields of eastern Nebraska unfolded before him like a sea of gold and green, the sun setting slowly behind them to paint the sky with hues of crimson and pink. The radio played softly in the background, the distant strains of Bob Seger's "Old Time Rock and Roll" drifting out into the darkness.
+
+Hawk pulled up to the local truck stop, where he'd stopped for a quick bite to eat and a cup of coffee before hitting the road. It was a small place, with just a handful of booths and tables, but it was home to some of the best fueling and repair work in the county. Hawk knew every face here, from the gruff trucker who always ordered a beer with his meal to the young mechanic who took pride in keeping his rigs running smoothly.
+
+As he pulled into his usual spot, Hawk's phone buzzed on the passenger seat, the screen illuminating the message from his dispatcher: "Hawk, we've got a job for you up north. A crew of grad students are headed into the nearby woods to study some rare plant species. They need someone with your expertise to... um... 'supervise'. You in?"

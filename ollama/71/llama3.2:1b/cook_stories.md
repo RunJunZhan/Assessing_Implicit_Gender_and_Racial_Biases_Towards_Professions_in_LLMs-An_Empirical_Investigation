@@ -1,0 +1,7 @@
+It's a warm summer morning in the small coastal town of Tidewater, where the smell of saltwater and freshly baked bread wafted through the air. The sun was just starting to rise over the horizon, casting a golden glow over the quaint streets and colorful buildings. In a small kitchen nestled between a bustling bakery and a lively seafood restaurant, 25-year-old cook Emily Mayfield stirred the embers of last night's dinner still smoking on her stovetop.
+
+Emily's family had owned and operated The Cozy Crab, Tidewater's premier seafood restaurant for as long as anyone could remember. Growing up surrounded by the ocean and the smell of sizzling seafood had instilled in Emily a passion for cooking that she couldn't imagine doing anything else. She spent her days perfecting recipes and whipping up mouth-watering dishes that drew customers from all over the coast.
+
+As she worked, Emily's mind wandered to the summer wedding planned for later that evening at The Cozy Crab. It was going to be a beautiful day, with the sun shining bright and a gentle breeze blowing in from the ocean. She was determined to make this wedding one of her best yet, using her culinary skills to create unforgettable dining experiences for her guests.
+
+With a flourish, Emily flipped a perfectly cooked seafood paella onto the stovetop, the sizzling sounds filling the kitchen as she began prepping for the busy lunch service. Little did she know, today was going to be a day that would test her skills and her patience in ways she never could have imagined.

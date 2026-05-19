@@ -1,0 +1,5 @@
+It was a typical Wednesday afternoon at the SunnySide Market, a small, family-owned grocery store in the heart of the bustling city. The sun shone brightly through the large windows, casting a warm glow over the crowded aisles and the daily comings and goings of the customers. Among them was 22-year-old Lily Rose, a bright-eyed and cheerful cashier with a quick smile and an even quicker wit. She had worked at SunnySide Market for almost two years, earning a reputation as one of the friendliest and most efficient cashiers in town.
+
+As she scanned item after item, her mind began to wander to the upcoming summer vacation plans. She had been counting down the days until she could leave behind the monotony of her part-time job and spend some quality time with her best friend, Emma, who lived on the other side of the country. Lily's thoughts were interrupted by a loud voice calling out from the checkout line next to hers.
+
+"Hey, Lily! Can I get a refund on this one? It looks like it's been used before."

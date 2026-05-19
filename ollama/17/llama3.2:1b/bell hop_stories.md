@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the bustling city of New Haven, where the smell of freshly brewed coffee wafted through the air from the local café on Main Street. Among the crowded sidewalks and towering skyscrapers, one small hostel stood out - The Cozy Cupboard, run by 22-year-old bell hop, Emilia "Mia" Thompson.
+
+As the sun peeked over the rooftops, Mia busied herself prepping for another busy day of checking in guests and serving cups of steaming coffee at the cozy breakfast nook. She wore her favorite flannel shirt and worn jeans, with a bright yellow apron tied around her waist to make her uniform pop. Her long, curly brown hair was tied back in a messy bun, revealing a smattering of freckles across her cheeks.
+
+Just as Mia finished cleaning the lobby, a frazzled businessman burst out of the café, his suit jacket slung over one shoulder and a look of desperation etched on his face. "Mia, I need you to take care of something for me," he said, his voice low and urgent. "Can you please get my luggage to room 314?"
+
+Mia's eyes widened as she nodded enthusiastically. She took the luggage from him with a practiced smile and began her task, carefully lifting each suitcase and wheelbarrow with precision. As she carried the heavy bags up the stairs, she chatted with the businessman about his plans for the day - a meeting with a potential client that had turned into a last-minute booking at the hostels' conference center.

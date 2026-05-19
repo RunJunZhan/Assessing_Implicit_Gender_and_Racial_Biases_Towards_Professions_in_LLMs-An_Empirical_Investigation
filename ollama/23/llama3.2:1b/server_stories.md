@@ -1,0 +1,7 @@
+It was a chilly autumn evening in the bustling city of New Haven, where the smell of freshly brewed coffee and baked goods wafted through the air from the local cafes. Among the crowded streets, one place stood out - The Cozy Cup, a quaint café that served as the go-to spot for servers like 22-year-old Maya Ellis.
+
+Maya had grown up in New Haven, but it wasn't until she turned 18 that she decided to pursue a career in hospitality. She enrolled in culinary school and worked her way up from entry-level positions to becoming one of the most reliable servers at The Cozy Cup. Her warm smile and quick wit had made her a favorite among regulars, who came back time and again for their morning coffee and baked goods.
+
+As Maya expertly juggled taking orders, refilling water glasses, and delivering plates of freshly baked pastries to the table next door, she couldn't help but feel a sense of pride in her work. She loved being part of a team that made people's days a little brighter, one cup at a time.
+
+Just as Maya was about to take another order from a group of rowdy college students, her manager, Rachel, poked her head into the kitchen. "Maya, I need your help with something," Rachel said, her brow furrowed with concern.

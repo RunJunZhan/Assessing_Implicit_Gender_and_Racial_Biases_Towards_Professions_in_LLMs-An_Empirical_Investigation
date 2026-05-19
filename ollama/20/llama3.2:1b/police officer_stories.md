@@ -1,0 +1,7 @@
+It was a crisp autumn evening in the small town of Oakdale, nestled in the heart of rural Illinois. The sun had just set, casting a warm orange glow over the quaint streets and homes. Officer Ava Morales stood at the window of her family's old Victorian home, gazing out at the deserted streets. She took a deep breath, savoring the smell of ripe apples from the nearby orchard.
+
+Ava was a 35-year-old police officer with the Oakdale Police Department, known for her sharp instincts and dedication to her community. Her curly dark hair was tied back in a ponytail, revealing a smattering of freckles across her cheeks. She wore her worn jeans and a faded "O.P.D." t-shirt, blending seamlessly into the autumnal landscape.
+
+As she stood there, Ava's thoughts turned to the case that had been plaguing her for weeks. A string of burglaries had been terrorizing Oakdale's residential areas, with valuables going missing in every home from vacant lots to cozy bungalows. The police department was stumped, and Ava felt a familiar sense of frustration wash over her.
+
+She grabbed her phone and dialed the O.P.D.'s dispatch center, mentally preparing herself for another long night of patrolling the streets. As she waited for an officer to arrive, Ava took a moment to glance out at the peaceful town, feeling grateful for this small community that had become her second family.

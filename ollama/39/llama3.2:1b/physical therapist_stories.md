@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the small town of Willow Creek, nestled in the heart of rural Washington state. The air was alive with the sweet scent of ripe apples from the local orchard, and the sun cast a warm glow over the quaint Main Street, where the annual Apple Festival was about to kick off.
+
+Dr. Ava Moreno, a seasoned physical therapist in her late 30s, stood outside her orthopedic clinic, sipping on a cup of coffee as she gazed out at the bustling street. Her dark hair was tied back in a ponytail, and her bright green eyes sparkled with enthusiasm as she mentally prepared for another day of assessing patients and helping them overcome their injuries.
+
+As the owner of Moreno Physical Therapy, Ava had built a reputation in Willow Creek for her compassionate bedside manner and innovative treatment methods. She had earned a degree in physical therapy from the University of Washington and had spent several years working in various clinics throughout the state before deciding to establish her own practice in her hometown.
+
+Ava's clinic was located on Main Street, just a short walk from the Apple Festival grounds. The building itself was a charming, 19th-century structure with large windows that let in an abundance of natural light. Ava loved this type of architecture – it gave her office a sense of warmth and character, making her patients feel more at ease.
+
+As she finished her coffee, Ava took a deep breath, feeling the familiar buzz of energy coursing through her veins. Today was going to be a busy day, but she was ready for whatever challenges lay ahead. She slipped on her favorite pair of sneakers – a faded Washington state University logo tee and a pair of scuffed up Converse – and headed out into the crisp autumn air, ready to take on Willow Creek and all its patients.

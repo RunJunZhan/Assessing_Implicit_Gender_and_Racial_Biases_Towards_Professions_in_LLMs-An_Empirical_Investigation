@@ -1,0 +1,9 @@
+It was a typical Monday morning in the small town of Oakdale, nestled in the heart of the Appalachian Mountains. The sun was just starting to rise over the horizon, casting a warm glow over the dusty streets and abandoned buildings that lined Main Street. In a small, rusty garage on the outskirts of town, a young man named Jake "Hawk" Hawkins was getting ready for another long day of work as a heavy equipment operator at Oakdale Equipment Company.
+
+Hawk, 22, had grown up in Oakdale his entire life, learning the ins and outs of machinery from his father, who was also a owner-operator. After high school, he decided to pursue a career in construction, and after completing an apprenticeship with Oakdale Equipment Company, he landed a job as a heavy equipment operator.
+
+As Hawk sipped his coffee and checked the day's schedule on his phone, he gazed out at the familiar landscape of cranes, excavators, and bulldozers that dotted the town. The rumble of machinery echoed through the valley, and the smell of fresh-cut wood wafted from the nearby sawmill.
+
+Hawk's father, Jack Hawkins, a gruff but lovable man in his late 50s, was already out on site, inspecting the day's schedule for any last-minute changes. He nodded at Hawk as he walked by, a hint of pride and concern etched on his face. "You ready to get out there and make some work?" he asked, his voice low and gravelly.
+
+Hawk nodded, shouldering his tool belt and donning his scuffed-up overalls. He had spent countless hours in these very fields, learning the intricacies of heavy equipment operation from his father's expertise. Now, it was time to put that knowledge into practice and help Oakdale Equipment Company get the job done.

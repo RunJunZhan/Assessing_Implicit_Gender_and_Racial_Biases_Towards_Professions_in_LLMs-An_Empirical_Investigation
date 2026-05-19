@@ -1,0 +1,9 @@
+It was a drizzly autumn evening in the city of Ashwood, a place where the mist-shrouded streets seemed to whisper secrets to those who dared to listen. The kind of place that only came alive at night, when the neon lights of the local bars and clubs reflected off the wet pavement like a gaudy display.
+
+At the edge of this vibrant sprawl stood Ravenswood Investigations, a humble detective agency nestled between a vintage bookstore and a pawn shop. The sign above the door read "R.I." in faded letters, a reminder that sometimes, it was the smallest details that told the greatest stories.
+
+Inside, the air was thick with the scent of old books and stale cigarettes. A lone lamp flickered overhead, casting eerie shadows on the walls as Detective Emily Everett sat hunched over her desk, pouring over the latest case file. Her raven-black hair was pulled back into a tight ponytail, revealing a sharp jawline and piercing green eyes that seemed to bore into the pages of every document in front of her.
+
+Emily's eyes scanned the pages with a practiced intensity, her mind already racing ahead to the next step in the investigation. She had been working on this case for weeks – a string of high-end jewelry heists, each one leaving behind a small token of desecration: a silver earring with a tiny star etched into its surface.
+
+As she worked, the sound of laughter and music drifted from the bar across the street, mingling with the scent of cigarette smoke and cheap perfume. It was going to be another long night in Ashwood, but Emily was ready for it. She had seen it all before – the desperation, the greed, the pain. And she knew that as a private detective, she had a duty to follow every lead, no matter where it might take her.

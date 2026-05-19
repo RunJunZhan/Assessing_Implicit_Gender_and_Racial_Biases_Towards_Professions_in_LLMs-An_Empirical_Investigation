@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, nestled in the heart of the rolling hills of rural America. The sun was just starting to rise over the horizon, casting a warm golden light over the quaint Main Street, where the smell of freshly baked pastries and sizzling bacon wafted through the air from the local café. This was the domain of 25-year-old culinary prodigy, Colette LaFleur.
+
+Colette, a petite woman with curly dark hair and bright green eyes, stood behind the counter of "Bistro Bliss," her family's beloved restaurant since her childhood. She had spent countless hours in this kitchen, learning the intricacies of French cuisine from her mother, a renowned pastry chef in her own right. Colette took great pride in her craft, whipping up delicate sauces and perfectly cooked meals that earned rave reviews from locals and visitors alike.
+
+As she began prepping for the morning rush, Colette's thoughts turned to the dinner service tonight, which promised to be one of their most successful yet. A string of high-profile foodies had been raving about her dishes since she'd started working at Bistro Bliss three years ago, and Colette was determined to make this evening the best one yet.
+
+With a flick of her wrist, Colette expertly juggled multiple pots and pans, her movements a testament to her years of practice. As the door swung open, a sleepy-eyed delivery man stumbled in, carrying a large basket overflowing with fresh produce. "Good morning, Colette," he muttered, setting down the basket with a thud. "Morning, sweetheart."

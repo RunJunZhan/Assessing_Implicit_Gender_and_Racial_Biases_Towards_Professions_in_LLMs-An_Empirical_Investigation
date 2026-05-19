@@ -1,0 +1,5 @@
+It was a typical Monday morning at Willow Creek Hospital, with the soft hum of fluorescent lights overhead and the gentle murmur of patients chatting in their rooms. Receptionist Emily Wilson polished a glass window, her bright blue eyes scanning the bustling waiting area for any signs of distress.
+
+Emily had worked at Willow Creek Hospital for five years, and she knew every nook and cranny by heart. She took pride in making sure everything was running smoothly, from answering phones to scheduling appointments. Her coworkers often joked that she was the glue that held the hospital together, but Emily just thought it was her job.
+
+As she worked, a commotion broke out at the front desk. A harried-looking nurse rushed over to Emily and whispered something in her ear. Emily's eyes widened as she leaned in closer to hear what it was, her heart starting to beat slightly faster. "It's the new patient," the nurse said urgently. "The surgeon is running late for our meeting. We need you to get everything ready for him."

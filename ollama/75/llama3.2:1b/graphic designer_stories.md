@@ -1,0 +1,5 @@
+It was a typical Wednesday morning for Emily Patel, a 28-year-old graphic designer who spent most of her days staring at screens and sipping coffee from her favorite café on the outskirts of the city. She lived in a small studio apartment above a vintage bookstore in the heart of downtown, where she often found herself lost in the pages of old novels or browsing through the shelves for inspiration.
+
+As she poured herself a cup of strong espresso, Emily gazed out the window at the gray, autumnal sky, feeling a familiar sense of melancholy wash over her. She had just received some disappointing news from her long-term partner, Alex, who was struggling to find work in his field despite having a degree and countless portfolio showcases under his belt. The tension between them had been building for weeks, and Emily couldn't shake the feeling that they were headed for a messy breakup.
+
+Just as she was about to head out the door to meet her clients at a small marketing firm on 5th Street, Emily's phone buzzed with an email from Alex. Her heart sank as she read the message - he wanted to talk in person.

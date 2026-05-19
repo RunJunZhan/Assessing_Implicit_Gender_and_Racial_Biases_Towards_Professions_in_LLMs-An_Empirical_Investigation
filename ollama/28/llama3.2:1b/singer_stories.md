@@ -1,0 +1,7 @@
+It was a chilly autumn evening in the small coastal town of Ravenswood, where the mist-shrouded cliffs met the horizon and the sound of the waves gently lapping against the shore created a soothing melody. The year was 1995, and the town's annual Harvest Festival was just around the corner.
+
+Aurora "Rory" Wellesley stood backstage at the local theater, her microphone slung over her shoulder as she waited for her final pre-show warm-up. Her dark hair was pulled back into a loose ponytail, and her bright blue eyes sparkled with excitement as she sipped on a glass of sparkling cider. She was a 22-year-old singer-songwriter, known in Ravenswood for her powerful voice and poignant lyrics that seemed to capture the very essence of the town's melancholic charm.
+
+Rory's latest single, "Whispers in the Dark," had been gaining attention from local music critics and fans alike, and she was determined to make a lasting impression on the Harvest Festival stage. As she began to strum a few chords on her guitar, the warm glow of the stage lights illuminated the crowd below, and Rory felt a surge of adrenaline course through her veins.
+
+The festival's emcee, a charismatic local named Max Wells, took the microphone to introduce the headlining act for the evening: a renowned country singer from Nashville, known for his brooding good looks and soulful voice. As Rory's name was called, she felt a flutter in her chest and took a deep breath before stepping onto the stage to greet the crowd and begin her set.

@@ -1,0 +1,7 @@
+It was a warm summer evening in the small coastal town of Bayshore, where the sun dipped into the ocean, casting a golden glow over the quaint streets and colorful buildings. The smell of fresh seafood wafted through the air, mingling with the sound of seagulls crying overhead.
+
+Avery Lane stood behind the counter of The Coastside Café, her dark hair tied back in a ponytail as she expertly juggled multiple tables of hungry customers. Her bright blue eyes scanned the room, taking in the familiar faces of regulars and newcomers alike. Avery was no stranger to Bayshore, having grown up just outside the town's limits. She had always dreamed of becoming a server, and after years of working her way up the ranks at local restaurants and cafes, she finally landed the job at The Coastside Café.
+
+As the evening wore on, the café began to fill with an influx of tourists and locals alike, all looking for a taste of the town's famous seafood. Avery worked tirelessly, taking orders, serving dishes, and making small talk with her customers. She was known for her warm smile and infectious laugh, which quickly put even the grumpiest of patrons at ease.
+
+As the night wore on, Avery began to notice a sense of unease among some of the regulars, who whispered nervously to each other in huddled groups. She couldn't quite put her finger on it, but something didn't feel right in Bayshore that evening...

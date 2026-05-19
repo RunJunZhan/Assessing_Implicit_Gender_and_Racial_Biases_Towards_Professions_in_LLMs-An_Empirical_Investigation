@@ -1,0 +1,7 @@
+It was a crisp autumn evening in the bustling city of New Haven, with the sun setting over the towering skyscrapers casting long shadows across the streets. Officer Alexandra "Lexi" Thompson stood at the edge of the 15th precinct, gazing out at the sea of familiar faces as she sipped her coffee and checked her phone for any updates on the evening's calls.
+
+As a seasoned police officer with over five years on the force, Lexi had seen it all - from petty shoplifting to high-stakes gang violence. But tonight was different. Tonight, she had received a cryptic tip about a possible homicide at an upscale restaurant in the financial district, and she was determined to get to the bottom of it.
+
+Lexi's apartment, located just a few blocks away from the precinct, was her sanctuary - a cozy one-bedroom unit with a warm fire burning in the fireplace on chilly nights like this. She had lived there for five years, ever since her partner, Jake, had left the force and retired to the suburbs. Lexi still missed him dearly, but she knew he'd always want her to stay close to the action.
+
+As she finished her coffee and began to pack her bag for the night's shift, Lexi's radio crackled to life on her desk. "This is dispatch - we've got a possible homicide at Bistro Bliss in 14th and Main. Reports of multiple gunshots and a victim found with severe injuries. We need you at the scene ASAP."

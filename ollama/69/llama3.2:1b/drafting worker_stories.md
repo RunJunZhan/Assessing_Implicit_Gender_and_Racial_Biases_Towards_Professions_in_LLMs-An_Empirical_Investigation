@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the leaves on the trees rustled softly in the gentle breeze as they prepared for another busy day ahead. The sun was just starting to rise over the horizon, casting a warm golden light over the quaint Main Street, where the local diner and general store sat side by side.
+
+At the center of it all stood 25-year-old Jack "Hawk" Hawkins, a drafting worker at the town's only architectural firm. Hawk had grown up in Willow Creek, learning the ins and outs of drafting from his father, who owned the small family business that had been around for generations. Now, as a skilled draftsman himself, Hawk took pride in bringing new ideas to life on paper.
+
+As he sipped his coffee and checked his phone for any urgent messages, Hawk gazed out at the sleepy town, feeling a sense of contentment wash over him. It was going to be another day of meeting deadlines, working with clients, and maybe even sneaking in some extra work to finish a personal project – a small design he had been tinkering with in his spare time.
+
+But little did Hawk know, today would bring more than just the usual routine of work and meetings. Little did anyone else either...

@@ -1,0 +1,9 @@
+It was a typical Wednesday morning at the Willow Creek Pharmacy, the kind that seemed to go on forever in small-town America. The sun was just starting to peek over the horizon, casting a warm glow over the rows of neatly organized shelves and the friendly faces of the staff. Among them was Emilia Rose, a 25-year-old pharmacist with a sharp mind and a quick wit, who had spent her entire life perfecting the art of mixing medications and dispensing advice.
+
+As she went about her morning routine, prepping for another day of filling prescriptions and chatting with the regulars, Emilia felt a sense of contentment wash over her. She loved being a pharmacist – it was a job that combined her passion for medicine with her love of people. But despite her enthusiasm, Emilia couldn't shake off the feeling of restlessness that had been plaguing her lately.
+
+It started a few weeks ago, when she'd noticed a pattern of strange occurrences around town. Equipment would go missing, only to reappear days later in unexpected places. Some folks claimed to have seen shadowy figures lurking in the shadows at night, their faces obscured by hoods. Emilia had dismissed it as mere small-town gossip, but now, as she pondered her own life, she wasn't so sure.
+
+As she locked up the pharmacy and headed out into the crisp morning air, Emilia couldn't help but feel a shiver run down her spine. She quickened her pace, glancing over her shoulder to see if anyone was following her. But the streets were empty, and the only sound was the soft hum of the radio playing in the background.
+
+It was as she turned onto Main Street that Emilia noticed it – a piece of paper tacked to the window of the old diner across the way, with a single sentence scrawled in red ink: "You'll never be safe."

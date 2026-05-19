@@ -1,0 +1,7 @@
+It's a warm summer evening in the small coastal town of Tidal Cove, where the air is sweet with the scent of saltwater and the sound of seagulls fills the air. The sun has just set, casting a golden glow over the quaint streets and homes, which seem to lean in slightly towards each other as if sharing a secret.
+
+At the heart of it all is 22-year-old Ember Welles, a young singer-songwriter with a voice that can melt the coldest of hearts. She stands on her porch, adjusting the mic stand under the fading light, her dark hair whipping around her face like a wild tangle of autumn leaves. Her eyes, a deep shade of indigo, sparkle with a hint of mischief as she gazes out at the sea, her mind already racing with the lyrics to her next song.
+
+Ember's music is a reflection of her own experiences growing up in Tidal Cove – the bittersweet memories of summers spent at the beach, the pain of lost loves, and the longing for a sense of freedom that seems to elude her. But tonight, she feels a sense of peace wash over her, as if the setting sun is imbuing her with a sense of contentment.
+
+As she begins to sing, her voice rises and falls like the tides, weaving a spell around the town and its inhabitants. The music flows from her very soul, and for one fleeting moment, all seems right with the world. But as the night wears on, Ember's thoughts turn to the upcoming music festival, where she'll be playing alongside some of her idols – and the pressure to deliver a show-stopping performance begins to mount.

@@ -1,0 +1,7 @@
+It was a crisp autumn evening in the small town of Ravenswood, nestled deep within the heart of the Pacific Northwest. The leaves on the tall trees rustled softly in the gentle breeze as Detective Emily Maynard stood at the edge of the lake, gazing out at the tranquil waters. She took a deep breath, savoring the scent of damp earth and wood smoke, and began to make her way down the embankment towards the dock.
+
+Maynard was a 35-year-old woman with short, dark hair and piercing green eyes that seemed to gleam in the fading light. A no-nonsense kind of girl, she had been a police officer in Ravenswood for over a decade, and had seen her fair share of crime and tragedy. But tonight, she had a different mission in mind - one that would take her back to her roots, and challenge everything she thought she knew about the town and its people.
+
+As she reached the dock, Maynard's partner, Detective James "Jim" Douglas, stood waiting for her, a cup of coffee clutched in his hand. He was a lanky man with a mop of curly brown hair and a warm smile that put everyone at ease. Together, they had worked countless cases in Ravenswood, from petty thefts to high-profile murders. But tonight, Jim had received a call from the local sheriff, asking for their help with something big.
+
+"Hey, Em," Jim said, as he handed her the coffee. "I've got some news. The sheriff wants us to meet at the old warehouse on 5th and Main. It's been vacant for years, but I think we might have a lead on what's going on."

@@ -1,0 +1,5 @@
+It was a chilly autumn evening in the small town of Willow Creek, where the streets were lined with oak trees that seemed to whisper secrets to each other as the wind rustled through their leaves. The sun had long since set, casting a warm orange glow over the town square, where a group of locals had gathered for the annual Harvest Festival. Inside the local tavern, "The Red Door," bartender and owner Emilia Welles was busy preparing for the night ahead. Her dark hair was tied back in a loose ponytail, and her bright green eyes sparkled with a hint of mischief as she expertly mixed a batch of her signature fall cocktail, the "Harvest Mule."
+
+As the door swung open, a tall, broad-shouldered figure strode in, his piercing blue eyes scanning the room until they landed on Emilia. He was a man in his late twenties, with chiseled features and a strong jawline that seemed to be carved from granite. His dark hair was cropped short, revealing a sprinkle of stubble that added to his rugged charm.
+
+"Em," he said, his deep voice low and smooth as he approached her station at the bar. "I've been looking forward to seeing you all night."

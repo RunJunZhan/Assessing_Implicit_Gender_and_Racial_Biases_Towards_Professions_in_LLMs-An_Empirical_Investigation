@@ -1,0 +1,7 @@
+It was a crisp autumn morning in New Haven, the kind that made you want to wrap up in a warm coat and boots as soon as possible. The streets were quiet, save for the occasional chime of a bicycle bell or the muffled sounds of a jazz club coming from a nearby alleyway. At the intersection of Elm and Pearl Streets stood the Hotel Beacon, its historic façade worn but still proudly displaying its gold stonework and ornate ironwork.
+
+Among the bustling activity of hotel staff rushing to prepare for the day's guests was Emilia "Mia" Thompson, a bellhop with a warm smile and an infectious laugh. She had been working at the Hotel Beacon for three years now, and she knew every nook and cranny of its sprawling lobby like the back of her hand. As she polished a silver doormat with a flourish, she couldn't help but feel a sense of pride in her role as the first face many guests would see when they stepped into their room.
+
+Mia lived just a few blocks away from the hotel, in a cozy two-bedroom apartment above her family's antique shop on Center Street. Her parents owned a small business selling vintage trinkets and collectibles, and they often helped Mia with odd jobs or allowed her to use the shop as a base when she needed to leave town for a bit.
+
+As she finished her morning routine, Mia took a deep breath of the crisp autumn air, feeling invigorated by the promise of another busy day ahead. She slipped on her warm coat and grabbed her keys, already looking forward to the friendly chatter with the guests she would meet throughout the day.

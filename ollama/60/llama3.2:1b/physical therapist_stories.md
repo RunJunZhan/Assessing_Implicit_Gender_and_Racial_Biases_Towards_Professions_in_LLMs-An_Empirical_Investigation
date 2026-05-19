@@ -1,0 +1,5 @@
+Here's a potential start to a story:
+
+The rain-soaked streets of New Haven glistened like polished onyx as Dr. Sophia Everett stepped off the train and onto the platform. It was a drizzly autumn evening in her hometown, but Sophia wasn't here for the weather – she was headed home to her family's old Victorian house in the heart of the city. As a physical therapist at Mercy Medical Center, Sophia had spent most of her life moving between hospitals and clinics, tending to patients with various injuries and illnesses. But after a decade on the road, she was ready to settle back into the familiar rhythms of small-town life.
+
+Sophia's thoughts were interrupted by the sound of her phone buzzing in her pocket. She pulled it out and answered, recognizing the warm smile on the other end – that of her best friend and confidant, Dr. Rachel Patel. "Hey, Soph, I'm so glad you could make it home tonight," Rachel said, her voice cheerful despite the late hour. "I've got some news to share with you."

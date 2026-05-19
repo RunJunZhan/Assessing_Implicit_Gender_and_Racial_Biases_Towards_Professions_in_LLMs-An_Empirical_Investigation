@@ -1,0 +1,7 @@
+It was a chilly autumn evening in the small town of Ravenswood, nestled deep within the English countryside. The sun had long since set, casting a warm orange glow over the quaint streets and homes. However, for 25-year-old guard, Thomas Blackwood, it was far from warm as he stood watch at the crumbling walls that encircled the abandoned Ravenstone Manor.
+
+Ravenstone Manor, once a grand estate, now lay in ruins after decades of neglect and disrepair. Its stone façade had weathered to a moss-covered grey, and its windows were like empty eyes staring back at anyone who dared approach. Thomas had taken on the role of guard not just for the safety of the townspeople, but also out of a sense of duty and a dash of nostalgia.
+
+As he gazed up at the manor's sprawling facade, Thomas couldn't help but think of his childhood summers spent exploring the nearby woods, chasing after fireflies, and listening to tales of Ravenswood's rich history from the town's elderly residents. He had always been drawn to the mysterious and the unknown, which was why he'd become a guard here in this forsaken place.
+
+With a deep breath, Thomas steeled himself for another long night ahead, his eyes scanning the darkening landscape as he tried to shake off the feeling of restlessness that seemed to plague him. He had no particular destination in mind, just a vague sense of duty and a lingering curiosity about the secrets Ravenstone Manor might hold.

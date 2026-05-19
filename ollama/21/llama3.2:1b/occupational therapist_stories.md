@@ -1,0 +1,7 @@
+Here's a potential story opening and setting for an occupational therapy protagonist:
+
+In the heart of New Orleans' vibrant French Quarter, Dr. Julia "Jules" Thompson, a renowned occupational therapist specializing in rehabilitation after a traumatic brain injury, had just settled into her cozy second-floor apartment above the iconic Cafe du Monde on Royal Street. The smell of chicory coffee and freshly baked beignets wafted through the streets below, mingling with the sounds of jazz music drifting from the nearby clubs. Jules had grown up in New Orleans, earned her undergraduate degree from Tulane University, and then went on to earn a master's degree in occupational therapy from the University of Louisiana at Lafayette before returning to the city to work with its most vulnerable populations – including those recovering from brain injuries.
+
+As she sipped her morning coffee, Jules gazed out at the breathtaking view of the Mississippi River, now tranquil and still after the previous night's thunderstorms. Her apartment was a reflection of her eclectic personality: vintage posters adorned one wall, while colorful textiles and natural fiber rugs added warmth to the space. A small herb garden in the corner showcased her green thumb, as Jules had always been passionate about using occupational therapy to empower individuals with disabilities to grow and thrive.
+
+Little did she know, today would bring a new challenge – one that would take her out of her comfort zone and into the heart of the city's most treacherous terrain.

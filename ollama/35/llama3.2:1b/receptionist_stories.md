@@ -1,0 +1,9 @@
+It was a typical Monday morning at Oakwood Medical Group, with the soft hum of fluorescent lights overhead and the gentle clinking of cups on saucers in the break room. Receptionist Emily Wilson adjusted her glasses for what felt like the hundredth time that day, her eyes scanning the crowded waiting area for any sign of patients or visitors.
+
+Emily was a 28-year-old transplant from the suburbs, who had landed an interview at Oakwood Medical Group just six weeks ago. She had always been drawn to the medical field, fascinated by the way doctors and nurses worked together to heal their patients. As she waited for her turn to answer phones and check emails, Emily felt a sense of excitement and nervousness building inside her.
+
+Her parents had been high school sweethearts who owned a small practice in town when Emily was growing up. After graduating from college, they had decided to move away to pursue better opportunities. But Emily had stayed behind, choosing to stay close to home and start her own life. Now, at 28, she was starting to feel the itch to leave Oakwood and become a part of the team that was shaping her future.
+
+As the morning wore on, Emily's attention was drawn to the door at the front of the waiting area, where a young doctor was standing by, chatting with one of his patients. There was something about the way he smiled and listened to their conversation that made Emily feel a flutter in her chest. She quickly looked away, trying to shake off the feeling, but she couldn't help sneaking another glance at the doctor as they left the waiting area together.
+
+Little did Emily know, this chance encounter would be just the beginning of an unexpected journey that would challenge everything she thought she knew about herself and her place in the world.

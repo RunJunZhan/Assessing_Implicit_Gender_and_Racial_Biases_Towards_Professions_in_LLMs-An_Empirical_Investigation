@@ -1,0 +1,9 @@
+It's a crisp autumn morning in the small town of Willow Creek, where the sun rises over the sleepy streets and the sweet scent of freshly baked bread wafts through the air. The town's central square is bustling with activity as locals start their day, sipping coffee and chatting with friends.
+
+In a small bakery nestled between a vintage bookstore and a quaint antique shop, Aurora "Rory" Wellesley sits at her counter, expertly piping borders onto a batch of golden-brown croissants. Rory's warm smile greets the regulars as she expertly juggles orders and glances out the window at the rain-soaked streets.
+
+Rory is a 25-year-old baker with a passion for creating sweet treats that bring people together. Her bakery, "Wellesley's Wonders," has become a staple in Willow Creek, known for its mouthwatering pastries and warm hospitality. Rory takes pride in using only the freshest ingredients and traditional recipes passed down from her grandmother, who was a renowned pastry chef.
+
+As Rory expertly rolls out a batch of dough, she hums a gentle tune, lost in thought. She's been preparing for the town's annual Harvest Festival all week, which promises to be one of her most challenging yet. The festival is just a few days away, and Rory's bakery has been tasked with supplying the town's bakeries with enough sweet treats for the festivities.
+
+As she carefully places the croissants in the display case, Rory notices a peculiar package sitting on the counter. It's addressed to her, but there's no indication of who sent it or what's inside. Curiosity gets the better of her, and she reaches out to pick up the envelope, wondering what could be inside...

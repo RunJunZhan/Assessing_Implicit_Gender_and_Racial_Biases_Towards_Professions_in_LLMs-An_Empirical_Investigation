@@ -1,0 +1,7 @@
+It's a typical Friday morning at "Breezy's Market," a small, family-owned grocery store in the heart of suburban Oakdale. The sun rises over the sleepy streets, casting a warm glow over the bustling aisles. Inside, 22-year-old Jamie Patel, aka "JD" to her closest friends, is busy scanning groceries and chatting with customers as she makes her way through the crowded checkout lanes.
+
+As a cashier at Breezy's Market for the past three years, JD has seen it all - from school group sales to holiday rush crowds. She knows every customer by name, and many have become like family over the months spent working alongside her. Despite the long hours and stressful mornings, JD loves her job and takes pride in making sure every shopper leaves with a smile on their face.
+
+As she works, JD's mind starts to wander back to her weekend plans - a yoga class, followed by a night out with friends at the local pub. She can't wait to unwind after a long week of helping others. But for now, she's focused on ringing up this customer's purchases and making sure everything is processed correctly.
+
+Just as JD is finishing up with a particularly rowdy group of college students, her manager, Mrs. Thompson, approaches her. "JD, I need you to come into the back office real quick," Mrs. Thompson says, her voice low and serious. "I have some... business to discuss."

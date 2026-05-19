@@ -1,0 +1,6 @@
+Here's a potential story opening:
+The sun was just starting to rise over the dense forest of Redwood Heights, casting a warm golden light through the towering trees. Jack "Hawk" Hawkins stood at the edge of the clearing, his eyes scanning the treeline as he surveyed the day's haul. He had been a logger in these woods for nigh on 20 years, and he knew every inch of this forest like the back of his hand. But despite the familiarity, he still felt a thrill of excitement as he watched the trees sway gently in the morning breeze.
+
+Hawk was 42, with a rugged face and a thick beard that reached down to his chest. He had lost his wife just two years ago, and the pain of her passing still lingered. But he had found solace in this work, in the sense of purpose it gave him. As a logger, he had a certain freedom – the freedom to move from tree to tree, to explore the woods at dawn and dusk, to breathe in the fresh air and feel alive.
+
+Hawk's truck, a battered old Ford F-150, rumbled down the dirt road that wound its way through the forest. He was headed to meet his crew at the old mill on the outskirts of town, where they would spend the day cutting and hauling timber. The men were all seasoned pros – some had been logging for decades, while others were just starting out. Hawk knew most of them by name, and they knew him as "Hawk" or "The Old Guy".

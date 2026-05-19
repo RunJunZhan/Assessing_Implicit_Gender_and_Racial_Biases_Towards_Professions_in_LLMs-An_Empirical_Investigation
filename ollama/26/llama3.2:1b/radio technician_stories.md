@@ -1,0 +1,8 @@
+Here's a potential story opening:
+The rain-soaked streets of downtown Boston gleamed like polished copper in the flickering light of the city's few remaining streetlamps. Inside the cramped walls of 12W1 Radio, Jack "Hawk" Hawkins, a grizzled radio technician with years of experience patching together broken signals and troubleshooting equipment, sat hunched over his workstation, eyes fixed on the screen of his trusty Kenwood console.
+
+It was a typical drizzly evening in late April, and Hawk's team had just wrapped up a long day of repairs at the Boston Public Utilities Commission. As he worked to diagnose the latest problem plaguing one of the city's aging water treatment plants, Hawk couldn't help but feel a sense of déjà vu wash over him. Another night, another storm, another chance for someone - or something - to disrupt the delicate balance of power in this great city.
+
+Hawk's gaze wandered to the vintage radio sitting on his desk, its wooden cabinet adorned with scratches and scuffs from years of use. It was a relic from Hawk's youth, one that he'd inherited from his father before him. Now, it was more than just an heirloom - it was a symbol of tradition, of a time when signals were clear as day, and the air was filled with the sweet scent of radio waves.
+
+But those days seemed to be fading fast, replaced by a world of digital noise and interference. Hawk's phone beeped, breaking the silence. "Hawk, we got a call for help," his dispatcher crackled over the line.

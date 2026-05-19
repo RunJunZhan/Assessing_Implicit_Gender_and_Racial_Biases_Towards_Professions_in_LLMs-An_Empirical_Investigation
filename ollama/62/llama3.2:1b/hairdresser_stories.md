@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small coastal town of Tidal Cove, where the sun rose over the waves to greet the new day. The smell of freshly baked pastries wafted from the local bakery, enticing the residents as they began their daily routines. In a cozy salon tucked away on Oceanview Drive, hairdresser Emily Thompson was getting ready for another busy day ahead.
+
+Emily, with her bright blonde hair and warm smile, had been running her salon, "Thompson Tresses," for five years. She took pride in her work, using only the finest products and techniques to create stunning hairstyles that made her clients feel confident and beautiful. As she worked on a client's intricate updo, Emily couldn't help but think about the upcoming town festival, where her salon would be participating in the talent show.
+
+The festival, held on the last weekend of August, was a beloved tradition in Tidal Cove. It brought together the community for music, food, and fun, with local artists showcasing their talents. Emily had performed at the festival before, but this year she was determined to bring her A-game. She would make sure that every hairdo she created would be a hit, and that her salon would be the talk of the town.
+
+As Emily finished her client's appointment and prepared to start the morning rush, she received a text from her best friend and business partner, Rachel: "Hey Em, just got a call from our supplier. We're short on hair ties by the end of the week. Can you get creative?"

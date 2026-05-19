@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the historic Hotel Le Coeur de la Mer, nestled between the rolling hills and quaint streets of the French Riviera. The sun was just starting to rise over the turquoise waters of the Mediterranean, casting a warm glow over the bustling lobby. Among the sea of elegant guests checking out or sipping coffee at the bar, one person stood out - 22-year-old Sophie Laurent, resplendent in her crisp white uniform and matching hat, expertly juggling multiple bags as she made her way to the elevator.
+
+Sophie had worked as a bell hop at Hotel Le Coeur de la Mer for three years now, and it was a job that allowed her to combine her love of travel with her passion for hospitality. She took pride in ensuring that every guest who checked out felt like royalty, whether they were heading home or embarking on their next adventure.
+
+As she reached the elevator, Sophie gave a bright smile to the passing guests, waving and exchanging friendly hellos before disappearing into the bowels of the hotel. Her day would take her to some of the most exclusive villas in the area, where high-society types came to relax and unwind after a night out on the town.
+
+Little did Sophie know, today was going to be a particularly eventful morning - one that would test her skills as a bell hop, her patience with difficult guests, and her own sense of adventure.

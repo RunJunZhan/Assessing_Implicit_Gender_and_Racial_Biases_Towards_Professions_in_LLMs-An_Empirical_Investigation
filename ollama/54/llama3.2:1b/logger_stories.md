@@ -1,0 +1,9 @@
+It's a chilly autumn morning in the small town of Oakwood, nestled deep within the heart of the Pacific Northwest's ancient redwood forests. The year is 1922, and the logging industry is booming, with companies like Redwood Lumber Company dominating the local economy.
+
+In this picturesque setting, 35-year-old logger Jake "Hawk" Hawkins rises before dawn to start his daily routine. He lives in a small cabin on the outskirts of town, surrounded by the towering trees that have been his family's livelihood for generations. Hawk's thick, dark hair is tied back in a simple knot, and his calloused hands are smeared with dirt as he makes his way out of his cabin.
+
+As he walks towards the logging camp, the sound of chainsaws and hammers echoes through the forest, punctuated by the occasional shout or laughter from his fellow loggers. Hawk has spent countless hours in these woods, learning the ins and outs of the trade from his father and grandfather before him. He knows every tree like the back of his hand, every knot, and every way to fell a perfect timber.
+
+The smell of fresh pine and sap fills the air as Hawk arrives at the camp, where his supervisor, gruff but fair-minded Captain James "Hawk" Hawkins (no relation to Jake), greets him with a nod. The two men share a hearty handshake before heading out into the misty dawn to tackle the day's work.
+
+Today's mission is to clear a section of old-growth forest for a new timber road, one that will connect Oakwood to the rapidly growing cities on the coast. Hawk knows that this logging operation will have far-reaching consequences for the local ecosystem and the community as a whole, but he's confident in his skills and the expertise of his crew. As he boards the rickety old truck that will take him into the heart of the forest, Hawk feels a sense of pride and purpose wash over him – it's just another day on the job for this rugged logger from Oakwood.

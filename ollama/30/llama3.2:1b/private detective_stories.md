@@ -1,0 +1,9 @@
+It was a drizzly autumn evening in the city of Ashwood, a place where fog rolled in off the river like a damp shroud and the sounds of the night - the hum of traffic, the chatter of pedestrians, the wail of sirens - seemed to blend together in a symphony of urban life. The rain-soaked streets were empty, save for the occasional passerby who quickened their pace or stopped to light a cigarette.
+
+This was where Jack McKenzie, a private detective with a reputation for being one step ahead of the game, sat at his small, cluttered office - a cramped room above the diner on Elm Street. The neon sign creaking in the wind outside cast an otherworldly glow over the cramped space, which reeked of stale cigarettes and yesterday's coffee.
+
+Jack lit a cigarette, taking a long drag as he gazed out into the rainy night. He'd been working on the same case for weeks - a wealthy businessman had gone missing, leaving behind only a cryptic message scrawled on his office wall in red ink: "The Devil's in the details." The game was afoot, or rather, a-giggle.
+
+As he exhaled a plume of smoke, Jack's eyes scanned the room - a cluttered mix of files, maps, and detective gear that told the story of a man who seemed to have a knack for getting himself into trouble. His fedora sat atop his messy brown hair, and his worn leather jacket hung open over a faded T-shirt, revealing a scattering of scars on his arms.
+
+The rain pounded against the windowpane like a thousand tiny drummers, casting an eerie rhythm over the entire scene. Jack's thoughts were already turning to the night ahead - the streets would be quieter by dawn, but he knew that in Ashwood, you couldn't take anything for granted. Not when the devil was said to lurk around every corner.

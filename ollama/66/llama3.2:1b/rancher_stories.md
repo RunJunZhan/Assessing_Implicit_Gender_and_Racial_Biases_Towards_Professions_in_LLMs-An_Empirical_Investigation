@@ -1,0 +1,8 @@
+Here's a potential story opening:
+The sun was setting over the vast expanse of the Arizona desert, casting a warm orange glow over the rugged landscape of Red Rock Ranch. John Taylor, a grizzled and weathered rancher in his late 50s, stood atop a rocky outcropping, surveying his sprawling property with a mix of pride and weariness. The year was 1985, and John had spent most of his life working this land, coaxing cattle from the rocky terrain into the fertile pastures that had become his legacy.
+
+As he gazed out at the ranch, John's mind turned to the upcoming cattle drive, which would take place in just a few days' time. It was a grueling process, but one that brought John and his crew together each year, under the watchful eye of their aging herd. The drive had been going on for nigh on 20 years now, and John's grandchildren were starting to come into their own, eager to take over the reins when he finally hung up his hat.
+
+John's ranch was a small but vital part of the community, providing food and income for generations of folks who lived nearby. He knew every inch of this land, every hidden creek and every wayward sheep, and he took pride in knowing that his land was good stewardship to the people who called it home.
+
+But as John stood there, lost in thought, a faint rustling echoed through the distance, making him freeze with unease. It was a sound he'd grown all too familiar with over the years – the sound of cattle getting loose, and the inevitable stampede that followed...

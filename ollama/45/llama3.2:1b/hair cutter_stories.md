@@ -1,0 +1,7 @@
+It was a sunny Saturday morning at "Cuts & Colors," the local hair salon owned by 22-year-old Jamie Lee Jenkins. The sign above the door read "JL's Cuts" in bold letters, and the sound of clippers and chatter filled the air as customers came and went throughout the day.
+
+The sun was shining brightly through the large windows that let in natural light, illuminating the tidy salon and its eclectic decor. A collection of vintage hair care products and stylish hair accessories lined one wall, while a long counter ran down the center of the room, where Jamie herself worked tirelessly to style and trim her clients' locks.
+
+As the morning rush subsided, Jamie took a brief break to grab a cup of coffee from the kitchen, where her sous chef, 25-year-old Maria Rodriguez, was busy preparing breakfast. The two had been working together at "Cuts & Colors" for three years now, and their partnership had grown stronger with each passing day.
+
+Maria expertly flipped a tray of scrambled eggs and toast, while Jamie chatted with the occasional customer or checked her phone to respond to any urgent messages. The atmosphere in the salon was warm and welcoming, filled with the relaxed hum of conversation and the gentle clinking of dishes as Maria finished up her prep work.

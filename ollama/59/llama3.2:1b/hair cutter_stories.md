@@ -1,0 +1,9 @@
+Here's a potential story opening:
+
+In the sleepy suburban town of Oakdale, where the sun dipped into the horizon like a melting pot of golden hues, 22-year-old hairstylist Ember Wellesley sat behind her sleek, modern counter at "Wellesley Waves," her family-owned hair salon. The aroma of freshly cut hair and baking cookies wafted through the air, mingling with the soft hum of conversation from her clients in the back rooms. It was a typical Friday evening, and Ember was preparing for another busy night ahead.
+
+As she adjusted the temperature on her trusty blow dryer, her mind began to wander to the upcoming prom season, where the drama between rival cliques would unfold like a tangled mess of bouquets at a high school dance. At 5'8" with curly brown hair that fell in loose waves down her back, Ember was often mistaken for one of the popular crowd, but she'd rather be known as the girl who cut hair with precision and creativity.
+
+With a flick of her wrist, Ember sent a stray lock flying onto its appointed resting place, where it would soon become a stylish bob. She took a deep breath, feeling the familiar buzz of excitement that came with another night of cutting locks and styling tresses. This was what she loved about being a hairstylist – not just the creative expression, but the ability to be a part of people's transformations, whether it was a last-minute emergency trim or a bold new 'do for a special occasion.
+
+As Ember's phone began to ring, signaling her first client of the night, she smiled and replied with a cheerful "Hello!" The sound of her salon's intercom system chimed in, announcing the arrival of newcomer Olivia Stone – a fashionista with a penchant for dramatic curls and an eye for the latest celebrity gossip. Little did Ember know that this evening would be unlike any other at Wellesley Waves...

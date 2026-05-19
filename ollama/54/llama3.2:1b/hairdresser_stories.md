@@ -1,0 +1,5 @@
+It was a crisp autumn morning in the small coastal town of Tidal Cove, where the salty air and sound of seagulls filled the air. The sun was just starting to rise over the horizon, casting a warm glow over the quaint streets and shops. In a cozy salon nestled between a vintage clothing store and a bakery, hairdresser Emilia "Mia" Thompson sat perched behind her gleaming silver chair, sipping on a cup of strong coffee as she prepared for another busy day ahead.
+
+The salon was Mia's pride and joy, where she spent most of her free time experimenting with new hairstyles and makeup looks for the townspeople. Her attention to detail and creativity had earned her a loyal client base, and she took great pride in making every customer feel like royalty. As she worked on a particularly tricky updo for a wedding guest, Mia's phone rang, signaling the start of another long day ahead.
+
+"Good morning, Mia!" her best friend and business partner, Rachel, chimed over the phone. "We have a big event tonight – Alex is getting married, and he's asked us to be his bridesmaids. We're going to need all the hair magic we can muster."

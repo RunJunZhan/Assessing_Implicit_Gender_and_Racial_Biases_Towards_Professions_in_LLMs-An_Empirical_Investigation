@@ -1,0 +1,7 @@
+It's been five years since the night that changed everything for Alexandra "Lexi" Thompson. The small town of Willow Creek, where Lexi grew up singing in her local church choir, was bustling with excitement as she prepared to perform at the annual SummerFest celebration. As she took the stage, the sun shining down on her bright pink hair and sparkling blue eyes, Lexi felt a sense of freedom and joy that she hadn't experienced in years.
+
+Lexi's music had always been a part of her life, but it wasn't until she was 15 that she started to make a name for herself as a singer. With her powerful voice and charismatic stage presence, she quickly became a favorite among the young crowd at local events. But Lexi's dreams were bigger than just performing in front of a small audience. She wanted to tour the country, opening for major artists and singing her heart out to thousands of fans.
+
+As Lexi looked out at the sea of faces before her, she felt a sense of anticipation building inside her. This was it – her big break. But as she raised her voice to sing the first note of "Roar," she couldn't shake off the feeling that something was off. A small crowd had gathered in the back of the auditorium, their eyes fixed on Lexi with an intensity that made her skin prickle. And then, just as she hit the high notes, a figure slipped into the front row – a tall, dark-haired man with piercing green eyes that seemed to bore into Lexi's very soul.
+
+The story continues...

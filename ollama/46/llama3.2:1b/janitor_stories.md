@@ -1,0 +1,5 @@
+It was a typical Monday morning in the small town of Willow Creek, with the sun rising over the quaint Main Street, casting a warm glow over the sleepy residents as they went about their daily routines. The smell of freshly brewed coffee wafted from the local café, enticing passersby to come and start their day.
+
+Among the crowd was 35-year-old Jesse "Jazz" Thompson, a janitor at the town's historic elementary school. Jazz had been working at the school for five years, and had grown accustomed to the quiet, predictable rhythms of his daily routine. He loved nothing more than sweeping up after the students' messy art projects, tidying up the dusty classrooms, and keeping the school's corridors clean and safe.
+
+As he made his way to the school, Jazz couldn't help but feel a sense of pride and purpose. It was moments like these that reminded him why he became a janitor in the first place – to make a difference, one dirty floor at a time.

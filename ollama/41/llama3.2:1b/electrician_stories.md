@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, nestled in the heart of the Appalachian Mountains. The sun was just starting to rise over the rolling hills, casting a warm orange glow over the quaint streets and homes. In the midst of this peaceful scene, a young electrician named Emrys "Morty" Thompson stirred in his small apartment above his family's hardware store.
+
+Morty, with his messy brown hair and bright blue eyes, was a familiar figure around town. He had grown up working alongside his father, Jake Thompson, who owned the hardware store just down the street. Morty had learned the ins and outs of electric work from a young age, and after completing his apprenticeship, he had struck out on his own, starting his own electrical contracting business.
+
+As he got dressed in his worn jeans and faded flannel shirt, Morty gazed out the window at the morning fog that clung to the hills. He lived for these early morning hours, when the world was still quiet and the only sound was the occasional hoot of an owl or the distant rumble of a train.
+
+With a spring in his step, Morty headed downstairs to start his day, where his mother was already brewing coffee and whipping up a batch of her famous scones. The aroma wafting from the kitchen was heavenly, and Morty couldn't wait to dig in. As he took a bite of the warm, flaky pastry, he smiled, feeling grateful for this simple life he'd built for himself in this tiny town surrounded by the beauty of nature.

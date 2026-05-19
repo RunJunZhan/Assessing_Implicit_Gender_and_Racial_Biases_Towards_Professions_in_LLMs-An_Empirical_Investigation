@@ -1,0 +1,6 @@
+Here's a potential story opening:
+The sun was just starting to peek over the rolling hills of the countryside as Emrys Blackwood made his way to the small stone quarry nestled at the foot of a ancient hill. It was a chilly autumn morning, and the air was crisp with the promise of changing seasons. Emrys, a master stone cutter in his late 30s, wrapped his worn leather gloves around his hands as he walked, the familiar scent of damp earth and stone driving out the winter blues. He had lived and worked at the quarry all his life, but there was still a sense of excitement that came with every new day, as if the stone itself held secrets waiting to be uncovered.
+
+Emrys's small cottage, tucked away in a quiet valley, was nestled among the rocks and boulders that would one day become the foundation for a new home. The thatched roof was a deep brown, and the smoke from his woodstove curled lazily into the air as he climbed the winding path to the quarry entrance. As he pushed open the creaky gate, the sound of running water echoed through the valley, drawing Emrys's gaze to the crystal-clear river that flowed like a lifeblood through the landscape.
+
+This is just a starting point, and you can feel free to modify or discard any elements that don't resonate with your vision.

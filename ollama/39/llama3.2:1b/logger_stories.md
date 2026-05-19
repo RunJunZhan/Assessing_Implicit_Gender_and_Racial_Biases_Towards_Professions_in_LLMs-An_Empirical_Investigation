@@ -1,0 +1,9 @@
+It's a crisp autumn morning in the small town of Willow Creek, nestled deep within the heart of the Pacific Northwest. The sky is a deep shade of indigo, with just a hint of pink as the sun rises over the dense forest that covers the surrounding hills. The air is cool and damp, carrying the scent of fresh pine and decaying leaves.
+
+At the edge of town stands the largest and most iconic logging company in the region: Blackwood Logging Co. Ltd. The towering trees, some of which have been felled for decades, stretch towards the sky like giant sentinels, their trunks as wide as houses and their canopies a vibrant green. The sound of chainsaws echoes through the forest, a familiar melody that's been played countless times over the years.
+
+Among the workers who call Blackwood home is 32-year-old Jack "Hawk" Hawkins, a logger with a reputation for being one of the best in the business. Hawk stands at 6'2", his broad shoulders and muscular arms a testament to his love of manual labor and the physical demands of his job. His dark hair is flecked with threads of gray, a reminder that time is slowly taking its toll on this rugged outdoorsman.
+
+Hawk lives in a small cabin on the edge of town, just outside the boundaries of Blackwood's sprawling operation. It's a simple place, with a big porch and a fireplace that always seems to be burning hot. Hawk spends most of his days logging, hunting, and fishing, but tonight he'll be spending more time at home than usual, as he's invited to dinner by his best friend, Rachel, a nurse who runs the local clinic.
+
+As Hawk walks into the cabin, the warm glow of the porch light spills out onto the dusty floorboards, illuminating the worn wooden beams and the faint scent of last night's supper. He takes a deep breath, feeling the familiar ache in his back and shoulders from another long day's work. It's going to be one of those nights.

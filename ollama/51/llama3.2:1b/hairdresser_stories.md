@@ -1,0 +1,7 @@
+It was a warm summer morning in the coastal town of Oceanview, where the scent of saltwater taffy and coconut sunscreen filled the air. The sun was just starting to rise over the horizon, casting a golden glow over the bustling streets of Main Street. Among the crowd of tourists and locals alike, one person stood out - 25-year-old hairdresser, Emily Wilson.
+
+Emily had grown up in Oceanview, where her family owned and operated a small, family-owned salon on the outskirts of town. Her mother still worked there, cutting hair for the locals and visiting clients from all over the island. After completing her apprenticeship under her mother's guidance, Emily decided to take the leap and strike out on her own, opening her own salon on Main Street.
+
+As she finished up a busy morning of haircuts and color applications, Emily took a moment to step back and admire her handiwork. The salon was bustling with activity - clients were pouring in for their appointments, while others chatted with the friendly staff and browsed the rows of colorful magazines and catalogs on display. The sounds of chatter, clippers humming, and the occasional burst of laughter filled the air.
+
+Just as Emily was about to tackle her first client of the day, a commotion erupted outside. A loud crash echoed through the street, followed by a panicked cry for help. The salon's front door burst open, and in walked a young woman, drenched and shivering with fear.

@@ -1,0 +1,7 @@
+It was a chilly autumn evening in the small town of Oakdale, nestled deep in the heart of rural Massachusetts. The sun had long since set, casting a warm orange glow over the quaint streets and homes. The air was crisp and clean, filled with the sweet scent of ripe apples and woodsmoke from the local fireplace.
+
+Aurélien "Rye" LaFleur, a 32-year-old radio technician, stood at the edge of town, his back against the wall of his family's old antique shop. He gazed out at the darkening landscape, his mind already consumed by the tasks that lay ahead. Tonight was the night he would be heading to the local police station, where his best friend and fellow radio operator, Officer Jake Thompson, would be waiting for him.
+
+Rye had always been fascinated by the world of emergency communications, spending countless hours as a child listening to dispatchers crackle with urgency on their ham radios. As a young adult, he had pursued a career in radio technology, eventually landing a job at the local police station. Now, every evening, he would head out to his family's shop and spend hours tinkering with equipment, preparing for the next shift.
+
+The sound of crunching gravel beneath his feet was the only noise that broke the silence as Rye turned back towards the shop, disappearing into the shadows like a ghost. The lights from within flickered on, casting an eerie glow over the deserted streets, and the radio in his hand crackled to life, its static-filled voice whispering out a single word: "Ready."

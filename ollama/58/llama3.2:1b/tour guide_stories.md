@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the small coastal town of Tidal Cove, where the air was alive with the sweet scent of saltwater and the sound of seagulls crying overhead. The sun was just starting to rise over the horizon, casting a warm golden light over the quaint streets and shops that lined its main promenade.
+
+In this charming setting, 28-year-old tour guide, Aurora "Rory" Wynter, stood at the helm of her small business, Wynter's Waterside Escapes. She had lived in Tidal Cove all her life, and she knew every nook and cranny of its picturesque streets, hidden coves, and secret spots that only a local would know. Rory was known for her infectious enthusiasm and vast knowledge of the area, which made her tours some of the most popular and sought-after in town.
+
+As she surveyed the bustling promenade, Rory's eyes scanned the crowds of early-riser tourists and locals alike, all eager to start their day with a glimpse of the ocean's beauty. She was a woman on a mission, ready to welcome everyone who would step foot into her little shop and embark on an unforgettable journey through Tidal Cove's hidden treasures.
+
+Just as Rory was about to greet her first tour group, a sleek black convertible pulled up alongside her stand, blasting the sounds of indie folk music that seemed to match the rhythm of the waves crashing against the shore. Out stepped Ethan Blackwood, a charming and well-dressed young man with piercing blue eyes and a mop of messy brown hair. He flashed Rory a quick smile as he stepped out of his vehicle, his eyes locking onto hers with an unmistakable spark of interest.
+
+"Hey there, tour guide extraordinaire," Ethan said, his voice smooth as silk. "I heard you're the best in town. I'm Ethan Blackwood, and I've been dreaming of exploring Tidal Cove for months."

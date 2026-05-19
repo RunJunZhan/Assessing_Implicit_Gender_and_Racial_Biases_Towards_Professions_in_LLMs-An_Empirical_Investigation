@@ -1,0 +1,7 @@
+It was a warm summer evening in the bustling city of New Haven, where the smell of freshly brewed coffee wafted through the air from the iconic "Brewed Awakening" café on Main Street. Amidst the vibrant atmosphere, 22-year-old server, Alexandra "Lexi" Thompson, stood confidently behind her station, polishing a glass and ready to tackle the evening's rush of customers.
+
+The building itself was a converted historic mansion, with intricate stone carvings and stained-glass windows that seemed to dance in the soft light of the setting sun. The interior was designed to resemble a warm and inviting library, complete with plush armchairs and floor-to-ceiling bookshelves that lined the walls.
+
+Lexi took a deep breath, mentally preparing herself for another long night of serving coffee, food, and small talk to the locals and tourists alike. She had worked at Brewed Awakening for over three years, and while it was her dream job, she knew that the constant stream of customers could be exhausting. Still, she loved the sense of community that came with being a server – and she took pride in knowing that every patron left with a smile on their face and a spring in their step.
+
+As the first customer approached her station, Lexi smiled brightly and greeted them with a warm "Good evening! How can I help you tonight?"

@@ -1,0 +1,9 @@
+It was a crisp autumn evening in the small town of Oakdale, nestled in the heart of the Appalachian Mountains. The leaves on the towering oak trees rustled softly in the gentle breeze, casting dappled shadows across the streets and homes. Officer Alexandra "Lexi" Thompson sat behind the wheel of her squad car, cruising down Main Street as she made her way to the Oakdale Police Department's headquarters.
+
+Lexi was a native Oakdalian, born and raised in this charming town where everyone knew each other's names and stories. She had always been drawn to the justice system, and after completing her degree in criminology from the University of Tennessee, she had joined the Oakdale Police Department as a rookie officer just five years ago.
+
+As she pulled into the police station's parking lot, Lexi couldn't help but feel a sense of pride and ownership. This was where she spent most of her days, working alongside some of the kindest and bravest people she'd ever met. She took a deep breath, grabbed her coffee from the cooler in the backseat, and stepped out into the chilly night air.
+
+The sun had long since set over Oakdale, casting a golden glow over the town. A full moon hung low in the sky, illuminating the quiet streets and homes like a silver crescent moon. Lexi shivered slightly, despite her thick jacket, as she made her way towards the station's entrance. It was going to be another long night ahead, filled with calls and encounters that would test her skills and her resolve.
+
+As she pushed open the door, a warm smile greeted her from the front desk sergeant, who looked up from his phone with a nod of acknowledgement. "Evening, Lexi. What's the first call of the night?"

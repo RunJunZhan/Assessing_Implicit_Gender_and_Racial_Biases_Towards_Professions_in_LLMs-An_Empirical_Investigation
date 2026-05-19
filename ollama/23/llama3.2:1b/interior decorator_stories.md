@@ -1,0 +1,6 @@
+Here's a potential story opening:
+In the heart of Manhattan, where the skyscrapers pierced the sky like shards of glass and the streets hummed with the constant din of human activity, Aurora "Rory" Wynter settled into her plush office on the 23rd floor of the iconic Savile Row building. The soft glow of overhead lighting and the gentle scent of old leather and wood filled the air as Rory worked tirelessly to bring her clients' most exquisite visions to life.
+
+Rory was a master interior decorator, known for her ability to distill the essence of any space into its purest form. Her own home on Park Avenue was a reflection of this passion, with its lush greenery and vintage furnishings that seemed to hold secrets and stories of their own. As she worked, Rory's mind wandered to the latest design challenge from a high-society client, one that promised to be the most audacious project of her career yet.
+
+The sounds of the city outside began to fade as Rory settled into her routine, but it was a gentle reminder that anything could happen at any moment in this never-ending dance between art and commerce. And for Rory Wynter, there was no greater joy than bringing beauty and wonder into the lives of others.

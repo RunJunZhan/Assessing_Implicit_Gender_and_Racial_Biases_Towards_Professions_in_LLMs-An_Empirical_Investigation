@@ -1,0 +1,9 @@
+It was a typical Wednesday morning at "Blossoming Curls," the trendy hair salon in the heart of downtown Manhattan. The sun had barely risen over the towering skyscrapers, but already the salon was buzzing with activity. Owner and lead stylist, Aurélie LaFleur, stood at the helm, surveying her team of skilled stylists as they prepped for another busy day of cuts, colors, and perms.
+
+Aurélie, a petite woman with a wild mane of curly brown hair and a warm smile, had built "Blossoming Curls" into a beloved institution in the fashion world. She was known for her creativity, attention to detail, and ability to bring out the best in even the most reluctant clients. As she watched her team work their magic on the salon's latest crop of regulars, Aurélie felt a sense of satisfaction wash over her.
+
+Among her loyal clients was 22-year-old Luna Nightingale, a shy and creative artist who had been coming to "Blossoming Curls" for months to get a fresh new look before heading out into the city. Luna's long, straight hair was starting to show signs of wear and tear, and Aurélie had offered to give her a makeover to boost her confidence and make her stand out at the upcoming art fair.
+
+As Aurora, or Aurélie as she liked to be called, worked on Luna's signature bob, she couldn't help but notice the way the morning sunlight streaming through the salon's large windows highlighted the soft, golden tones of Luna's skin. There was something about this young woman that resonated with her – maybe it was Luna's quirky sense of style, or perhaps it was the way Aurélie seemed to understand exactly what Luna needed before she even asked.
+
+Whatever the reason, Aurélie had a feeling that this morning would be one for the books...

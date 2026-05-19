@@ -1,0 +1,7 @@
+It was a typical Monday morning at the bustling city mall, with the sound of chatter and the rustle of newspaper bags filling the air. Among the throngs of shoppers was 22-year-old Alexandra "Lexi" Thompson, a junior at the local community college, working as a cashier at the store in the food court.
+
+Lexi had just rolled out of her apartment above the mall's entrance, sipping on a lukewarm coffee and checking her phone for any important messages. She lived with her best friend and roommate, Emily, who was already downstairs making breakfast in their cozy kitchenette. The smell of freshly baked pastries wafted up from the kitchen, mingling with the aroma of coffee and bacon.
+
+As Lexi made her way to the food court, she grabbed a large cup of coffee and joined the line for the self-service checkout counter. She had worked at this store for about six months now, and while it wasn't the most glamorous job in the world, she enjoyed the predictability and the sense of community that came with working in a place where people from all walks of life came together to shop and socialize.
+
+As Lexi waited in line, she scanned the colorful array of products on display, from fresh fruits and vegetables to souvenirs and clothing. She was about to ring up a customer when the door swung open, and a tall, dark-haired man strode into the food court, his eyes scanning the room as if searching for someone.

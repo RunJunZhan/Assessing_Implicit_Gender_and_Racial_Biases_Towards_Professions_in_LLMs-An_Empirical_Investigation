@@ -1,0 +1,7 @@
+It was a typical Monday morning at the bustling Sunshine Savings Bank in the small town of Oakdale. The sun had barely cracked the horizon, casting a warm glow over the crowded lobby, where customers were filtering in to start their day. At the front counter, 22-year-old cashier Emily Taylor settled into her usual spot, adjusting her worn-out apron and gazing out at the sea of faces.
+
+Emily had been working at Sunshine Savings Bank for three years, ever since she graduated from Oakdale High School. She knew the townspeople by name, and many of them had become like family to her over the years. As a cashier, Emily's days were filled with the same routine: scan purchases, handle transactions, and offer a warm smile to each customer as they left the bank.
+
+As she began to ring up the morning's first batch of customers, Emily's mind wandered back to last night's events. The Oakdale Dragons basketball team had just lost their championship game, and the town was still reeling from the disappointment. Emily's best friend, Rachel, had been a standout player on the team, and she was already talking about her potential college scholarships.
+
+The bell above the front counter jangled, signaling the arrival of another customer. Emily picked up her pen and notebook, ready to greet the next person in line. Little did she know, today would be different, and the day that changed everything.

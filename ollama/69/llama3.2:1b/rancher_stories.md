@@ -1,0 +1,7 @@
+It was a crisp autumn morning on the vast, rolling hills of Red Rock Ranch, nestled in the heart of rural Montana. The sky was a deep shade of indigo, with just a hint of pink lingering in the east, signaling the approach of sunrise. The air was alive with the sweet scent of ripe corn and the distant rumble of a cattle herd lowing in the nearby pasture.
+
+Austin "Hawk" Hawkins stood at the edge of the ranch, his weathered boots sinking into the soft earth as he gazed out at the landscape. His eyes, a piercing blue that seemed to see right through to the soul, scanned the horizon for any sign of movement. Hawk was a rugged man in his mid-40s, with a strong jawline and a sharp mind, known throughout these parts for his skill and dedication as a rancher.
+
+Hawk's calloused hands rested on the grips of his holstered pistol, a habit he'd developed over years of defending his land against threats both human and wild. He had built Red Rock Ranch from scratch, with hard work and determination turning a small plot of fertile land into a thriving enterprise that provided for him and his family.
+
+As he stood there, lost in thought, Hawk's thoughts were interrupted by the sound of cattle hooves on the dusty trail that led up to the ranch house. He turned to see Jake Thompson riding towards him, a tall, lanky young man with a mischievous glint in his eye.

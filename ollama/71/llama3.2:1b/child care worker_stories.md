@@ -1,0 +1,5 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the leaves had just begun to change colors and the air was filled with the sweet scent of ripe apples. The sun was shining brightly through the windows of 8-year-old Emma Jean Thompson's room at Bright Beginnings Child Care Center, where she worked as a full-time assistant.
+
+Emma Jean loved being around kids her own age, and she took pride in making sure they felt safe and happy during their time at the center. She had been working at Bright Beginnings for two years now, and she had grown close to many of the children and their families in the community.
+
+As Emma Jean finished getting ready for her shift, she grabbed a cup of coffee and headed out into the crisp morning air. The sound of birds chirping and leaves rustling in the wind filled her ears as she walked down to the center's kitchen to grab some breakfast before starting her job.

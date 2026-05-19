@@ -1,0 +1,9 @@
+It's a typical Wednesday morning in late September as Jack "Hawk" Hawkins pulls out of the truck stop in rural Texas. The sun is just starting to rise over the horizon, casting a golden glow over the dusty roads and small towns that Hawk calls home. He's been driving for Henningsen Trucking Co. for over 10 years, hauling cargo from the ports of Houston to the manufacturing centers of the Midwest.
+
+Hawk's truck, a sturdy Peterbilt 389 with a faded "Hawkins" logo on the side, rumbles down the highway as he makes his way back to his wife, Sarah, and their two kids, Emily and Jake. The family has lived in this small town for years, and Hawk knows every shortcut, every curve, and every pothole like the back of his hand.
+
+As he drives, Hawk listens to the radio, catching up on local news and sports. He's a fan of the Texas Rangers baseball team, and he always tries to catch as many games as possible during his long hauls. But today is different - today, Hawk has a special delivery to make. A large crate arrived at the truck stop last night, containing a shipment of electronics for a major retailer. Hawk's job is to pick up the crate, load it onto his truck, and deliver it to its destination.
+
+Hawk pulls into the truck stop, fills up on diesel, and takes a quick break before hitting the road again. He stops at a local diner for breakfast, where he orders a plate of eggs, bacon, and pancakes. As he waits for his food, Hawk catches a glimpse of a familiar face sitting in the corner booth - it's their neighbor, Sheriff Jim Wilson, who always has a joke or a story to share.
+
+"Hey, Hawk," the sheriff says, with a grin on his face. "You're just in time for breakfast. I've got some news that might interest you."

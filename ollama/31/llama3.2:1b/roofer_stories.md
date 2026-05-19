@@ -1,0 +1,7 @@
+It's a crisp autumn morning in the small town of Oakdale, nestled in the heart of the Appalachian Mountains. The sky is a deep shade of indigo, with just a hint of pink lingering in the eastern horizon. The air is cool and calm, carrying the sweet scent of ripe leaves and the distant chirping of birds.
+
+Aiden "Ace" Jackson, a rugged and dependable 25-year-old roofer, steps out of his worn truck and onto the cracked asphalt of Main Street. He's been working on this town for five years, fixing roofs and repairing chimneys with precision and care. Ace has seen it all – from fierce thunderstorms to bitter cold snaps – but there's something about Oakdale that still feels like home.
+
+As he begins his daily routine, Ace can't help but feel a sense of pride and purpose. He takes pride in his work, knowing that every repair he makes is not just fixing a leaky pipe or patching a hole in the roof, but also providing safety and security for the people who call this town home.
+
+But little does Ace know, today will be different. A strange occurrence has been reported by several residents – lights flickering on Elm Street, and disembodied whispers heard coming from the old abandoned mill on the outskirts of town. As Ace starts his workday, he can't shake off the feeling that something is amiss in Oakdale.

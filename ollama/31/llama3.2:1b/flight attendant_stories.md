@@ -1,0 +1,11 @@
+It was a crisp autumn morning in New York City, with the sun just starting to peek over the towering skyscrapers as flight attendant Alexandra "Lexi" Thompson prepared for her first solo flight of the day. She stood outside the bustling Teterboro Airport, where she had been hired as an extra pair of hands for United Airlines Flight 121 from Philadelphia to New York's LaGuardia Airport.
+
+The excitement was building up inside Lexi as she donned her uniform and checked her name tag on the wall. Her bright pink hair was tied back in a ponytail, and her dark eyes sparkled with a mix of nerves and anticipation. She took a deep breath, mentally rehearsed the safety demonstrations, and began to make her way down the jetway.
+
+As she stepped onto the plane, Lexi was greeted by the warm smile of the lead flight attendant, Captain James "Hawk" Wilson. He showed her to her designated seat in row 17, where she buckled in and took a moment to adjust her headset and grab her microphone.
+
+"Good morning, everyone," Hawk said over the intercom as the plane began its taxiing down the runway. "This is your captain speaking. I hope you all have a safe and comfortable flight today. Our flight attendants are ready to serve you, so please make sure your seatbelts are securely fastened and your electronic devices are in airplane mode."
+
+As Lexi settled into her seat, she scanned the cabin for any signs of distress or emergency situations. The passengers were chatting quietly, sipping their coffee and reading their screens, while a few of them looked up to catch her eye. Lexi smiled and waved, feeling a sense of pride and belonging as an integral part of the flight crew.
+
+The engines roared to life, and the plane began its slow ascent into the sky. Lexi felt a thrill run through her as she gazed out the window at the patchwork of New Jersey and the darkening expanse of the Atlantic Ocean behind them. This was going to be an amazing day – one that would test her skills, challenge her nerves, and ultimately prove why she had become a flight attendant in the first place.

@@ -1,0 +1,11 @@
+It's a typical Monday morning at Oakdale General Hospital, the sun had barely risen over the bustling streets of the city as Dr. Sophia Patel adjusted her crisp white lab coat for what felt like the hundredth time that week. As she stepped out into the chilly pre-dawn air, the sweet scent of blooming lilacs wafted through the hospital's corridors, a familiar comfort after years of working in the fast-paced world of medicine.
+
+Sophia had always been drawn to the pharmaceutical industry, and after completing her residency at Oakdale General Hospital, she had landed a job as an internal medicine pharmacist. Her colleagues affectionately referred to her as "The Medic", a nod to her meticulous attention to detail and her uncanny ability to make even the most complex medication regimen seem manageable.
+
+As she made her way through the hospital's secure entrance, Sophia was greeted by the soft hum of fluorescent lights and the gentle chatter of her fellow pharmacists, all going about their day. She passed by the nurses' station, where the friendly face of Nurse Rachel Jenkins smiled up at her from behind a stack of patient charts.
+
+Sophia's first stop was the pharmacy, where she began preparing for the day's dispensing schedule. The morning light streaming through the window highlighted the rows of shelves stacked with colorful medication bottles, each one carefully labeled and organized by dosage and indication. It was a sensory experience that always seemed to calm her mind, if only for a few moments.
+
+As she worked, Sophia's thoughts turned to her family, who were all settled into their respective routines. Her husband, Rohan, was a software engineer, working from home in his pajamas; their teenage daughter, Aaradhya, was off at college, studying business administration; and little Ravi, their rambunctious toddler, was currently occupied with an impromptu game of "peek-a-boo" behind the curtains.
+
+Despite the chaos that often accompanied family life, Sophia cherished every moment she spent with her loved ones. She knew that as a pharmacist, she had the privilege of making a tangible difference in people's lives – and that thought filled her with a sense of purpose and belonging. Little did she know, today was going to be one of those days when everything felt a little bit off-kilter...

@@ -1,0 +1,5 @@
+It was a warm summer evening in the bustling city of New Haven, where the smell of freshly brewed coffee wafted through the air from the local café on Main Street. Among the crowded tables and cozy booths, one name stood out - Avery Wellesley, a 25-year-old server with a passion for exceptional customer service.
+
+Avery had grown up in New Haven, surrounded by the rich history and cultural tapestry that made her hometown so unique. She had always been fascinated by the way people from different backgrounds came together to share stories and laughter over a cup of coffee or a slice of pie. This was Avery's dream job - to be the hostess with the mostest, ensuring every guest felt welcomed and at ease in this charming city.
+
+As she expertly juggled multiple tables, Avery couldn't help but feel a sense of pride and accomplishment. She took pride in her work, always striving to provide top-notch service and make sure every customer left feeling satisfied and eager for their next visit. Little did she know, tonight was going to be one of those nights that would test her skills, patience, and dedication like never before.

@@ -1,0 +1,7 @@
+It was a warm summer morning in the quaint coastal town of Tidal Cove, where the salty air and sound of seagulls filled the air as 22-year-old hairstylist, Alexandra "Lexi" Thompson, prepared for another busy day at her family-owned salon, Thompson's Touch.
+
+Located on the main street, the cozy salon was a staple in Tidal Cove, known for its stunning views of the ocean and its team of talented stylists. Lexi had grown up cutting hair on this very street, watching her parents and grandmother work their magic on the townspeople. After completing her cosmetology program at the local college, she had returned to Thompson's Touch to run the business alongside her parents.
+
+As Lexi styled a client's long brown locks into a bouncy bob, the scent of freshly cut grass and the sound of the waves crashing against the shore created the perfect background hum. The sunlight streaming through the window highlighted the warm tones of the salon, and the soft glow illuminated the rows of color jars and curling irons on the walls.
+
+Just as Lexi was finishing up a particularly tricky updo, her phone rang. It was her best friend and business partner, Jamie, calling to discuss a new client – a high-profile event planner who wanted Lexi to create a stunning look for a celebrity guest at the upcoming Tidal Cove Music Festival.

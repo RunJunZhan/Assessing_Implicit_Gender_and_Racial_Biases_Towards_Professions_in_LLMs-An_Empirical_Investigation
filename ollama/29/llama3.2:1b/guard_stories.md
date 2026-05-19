@@ -1,0 +1,9 @@
+It was a chilly autumn evening in the year 1955, and the town of Ravenswood lay shrouded in a deep, foreboding mist. The once-thriving coal-mining community had been ravaged by years of economic decline and social unrest, leaving behind a skeleton crew of workers and a handful of long-time residents.
+
+Among the latter was Emily Elizabeth "Evie" Thompson, a no-nonsense 25-year-old guard at Ravenswood General Hospital. Her sharp jawline and piercing green eyes were etched with the lines of countless late nights spent patrolling the hospital's corridors, her uniform a testament to her years of dedication to the medical staff.
+
+As Evie stepped out into the misty night air, the sound of her footsteps echoed through the empty streets, punctuated by the distant hum of a lone motorcycle. It was a familiar rhythm, one that Evie had grown accustomed to over the past few months, ever since the hospital's director, Dr. James Parker, had announced his plans to sell the building and relocate the staff to a newer, more modern facility in the city.
+
+Evie's thoughts were interrupted by the soft rustle of her uniform as she reached into her pocket for a match to light her cigarette. She took a long drag, inhaling the acrid smoke before exhaling it into the night air. The hospital's patients often complained about the unpleasant odor wafting from Evie's quarters, but she didn't mind – it was just another reminder of the hardships that came with doing one's job.
+
+As she blew out the match, Evie's gaze fell upon the worn photograph pinned to her wall, a faded snapshot of herself and Dr. Parker on their wedding day. She smiled wistfully, remembering the promise they had made to each other all those years ago – to build a life together in this small town, free from the troubles that plagued Ravenswood. Little did she know, their happiness was about to be put to the test.

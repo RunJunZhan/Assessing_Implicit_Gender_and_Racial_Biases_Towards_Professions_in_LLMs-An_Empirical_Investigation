@@ -1,0 +1,5 @@
+It was a typical Friday evening at the Silver Screen Cinema, the local movie theater that had been a staple in the small town of Oakdale for decades. The sun had just set, casting a warm orange glow over the crowded lobby as people filed in to catch the latest release. Among them was Emily Rose, a bright and cheerful cashier with a smile that could light up a room.
+
+Emily had worked at the Silver Screen for three years, and she knew every single customer by name. She took pride in her job, always greeting each patron with a warm hello and a quick scan of their ticket. As the night wore on, the cinema filled with families, friends, and lone moviegoers alike, all eager to escape the summer heat and immerse themselves in the latest blockbuster.
+
+As Emily expertly rang up purchases for a group of rowdy teenagers and a couple on their first date, she couldn't help but feel a sense of excitement and anticipation. This was her favorite part of the job – getting to meet new people and share in their movie-going experiences. Little did she know, tonight would be different.

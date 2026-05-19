@@ -1,0 +1,7 @@
+It was a crisp autumn evening in the bustling coastal town of Bayshore, where the sun dipped into the ocean, casting a warm orange glow over the quaint shops and restaurants that lined the main street. The smell of freshly brewed coffee wafted through the air from the cozy coffee shop next door, enticing passersby to come in and stay for a while.
+
+In a small, worn wooden bar nestled between the coffee shop and a vintage bookstore, Jack "Hawk" Hawkins polished a mug with a white apron, his eyes scanning the crowd of patrons filtering in and out of the bar. His dark hair was mussed, and his scruffy beard was flecked with hints of gray, giving him a weathered, grizzled look that suited his years as a bartender perfectly.
+
+Jack had spent most of his life on the coast, growing up in Bayshore with his family's beloved restaurant, where he learned the art of mixology from his father. After high school, Jack had taken over the bar from his father and run it for years, earning a reputation for serving up creative cocktails and warm hospitality to the locals and tourists alike.
+
+As the evening wore on, the doorbell above the entrance jingled, signaling the arrival of a new customer. A tall, slender woman with long, curly brown hair and piercing green eyes strode into the bar, her bright yellow sundress and oversized sunglasses making her look like she just stepped off the cover of a fashion magazine. Jack's eyes narrowed as he took in her confident stride, his mind already working out how to craft the perfect cocktail for this newcomer.

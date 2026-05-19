@@ -1,0 +1,7 @@
+It was a chilly autumn evening in New York City, and the lights of the Manhattan skyline twinkled like diamonds against the dark sky. The air was crisp, carrying the sweet scent of fallen leaves and the distant hum of traffic from the endless stream of cars that seemed to never end.
+
+In a small, cozy apartment above her family's restaurant in Greenwich Village, Alexandra "Lexi" Thompson sat at her kitchen table, sipping a cup of strong coffee and staring out the window. She was a flight attendant for American Airlines, one of the busiest airlines in the country, and she had been working non-stop for weeks to prepare for the summer rush.
+
+As Lexi poured herself another cup of coffee, her phone buzzed with an incoming text from her boss, Mike. "Lexi, you're cleared for departure on Flight 121 from New York to Los Angeles in just a few hours. Make sure everything is in order and our passengers are accounted for." Lexi let out a deep sigh, feeling the familiar pressure of responsibility wash over her. She had been training for this moment for years, but it never got any easier.
+
+With a final glance at the phone, Lexi stood up, smoothed out her uniform, and headed to the kitchen to grab some breakfast before heading back downstairs. As she passed by the large window, she caught a glimpse of the busy airport below, where hundreds of passengers were rushing to catch their flights. It was a chaotic scene, but Lexi had seen it all before. She took a deep breath, mentally preparing herself for the long flight ahead.

@@ -1,0 +1,8 @@
+Here's a potential story opening:
+In the heart of Portland, Oregon, where the scent of freshly brewed coffee wafted through the air and the sound of indie music echoed through the streets, Dr. Ava Moreno sat in her cluttered office, surrounded by stacks of dusty medical textbooks and the faint hum of her computer. It was a typical Tuesday morning at the Portland Clinic, with patients pouring in for their weekly check-ins and therapy sessions. But as Ava gazed out the window, lost in thought, she couldn't shake off the feeling that something was amiss.
+
+As a clinical psychologist, Ava had seen it all – the tears, the tantrums, the crippling anxiety. She had spent years honing her skills, earning her Ph.D. and completing her postdoctoral fellowship at one of the city's top mental health institutions. But despite her expertise, she still couldn't help but feel a sense of disconnection from the world around her. The more she helped others heal, the more she felt like she was failing them – not just as a therapist, but as a human being.
+
+The door to Ava's office burst open and her assistant, Rachel, rushed in, holding a thick stack of papers and looking frazzled. "Ava, we have a patient coming in right now! He's been experiencing some major symptoms – vivid nightmares, memory loss... I'm not even sure what's going on." Ava raised an eyebrow, intrigued despite herself. This was the kind of case that made her want to dig in and figure out what was really going on.
+
+What do you think? Would you like me to continue with the story?

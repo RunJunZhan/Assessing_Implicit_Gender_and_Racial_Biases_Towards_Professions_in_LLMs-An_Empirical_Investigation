@@ -1,0 +1,9 @@
+It was a warm summer evening in the small coastal town of Tidal Cove, where the sun dipped into the ocean, casting a golden glow over the bustling streets. The smell of saltwater taffy and fresh seafood wafted through the air, mingling with the sound of seagulls crying overhead.
+
+Ava Morales adjusted her crisp white apron, making sure it was perfectly tied at her waist. She had worked as a server at the popular waterfront restaurant, "The Catch," for five years, and knew every nook and cranny of the cozy dining room by heart. Her dark hair was pulled back into a tight ponytail, revealing a smattering of freckles across her cheeks.
+
+As she checked her watch for what felt like the hundredth time, Ava's thoughts turned to the upcoming summer season at The Catch. It was going to be a busy one, with school vacations and family gatherings lining up on her schedule. She had spent countless hours perfecting her menu, trying out new recipes, and practicing her multitasking skills in preparation for the influx of customers.
+
+The door swung open, and Ava's manager, Rachel, greeted her with a warm smile. "Ava, honey, we've got a big night ahead of us. The Smiths are coming at 6:30, and I need you to prep the special of the evening – that pan-seared salmon with lemon butter sauce." Ava nodded, tucking her hair behind her ear as she began to tidy up the bar area.
+
+As she worked, Ava's mind wandered back to her own summer plans. She had a few friends headed out to the islands for a week-long road trip, and she was excited to join them on their adventures. But for now, she was content to focus on the present moment – and getting through the busy night ahead at The Catch.

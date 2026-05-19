@@ -1,0 +1,7 @@
+It was a crisp autumn morning in New York City, the kind that made you want to wrap up your bag and head outside for a coffee before rushing back to your small apartment on Brooklyn's trendy Williamsburg neighborhood. The sun was just starting to peek over the Manhattan skyline, casting a golden glow over the crowded streets.
+
+Ava Morales, a 28-year-old graphic designer with a passion for vintage prints and retro-futuristic design, stood outside her studio, sipping a warm latte as she stared out at the bustling sidewalks. She lived for this moment – the rush of creative energy that filled the air, the smell of freshly brewed coffee wafting from the nearby café, and the sound of chatter and laughter carried on the wind.
+
+Ava's studio was a cozy, converted loft in the heart of Williamsburg, filled with an array of design tools, vintage posters, and eclectic trinkets that reflected her quirky personality. She spent most of her days designing logos for local startups, creating intricate illustrations for indie artists, and experimenting with new techniques in her beloved Adobe Creative Suite.
+
+As she stood there, lost in thought, Ava's phone buzzed with an incoming text from her best friend, Lily – a fellow designer and artist who was also working on a new project. "Hey girl! Just got back to the studio and my mind is racing with ideas," Lily wrote. "Want to meet up for brunch at that new spot on Bedford Avenue? Let's brainstorm some designs for our next project."

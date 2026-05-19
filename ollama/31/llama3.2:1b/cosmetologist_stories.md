@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small coastal town of Tidal Cove, where the sun rose over the horizon casting a warm golden light on the quaint beachside streets. The air was filled with the sweet scent of freshly baked pastries and the sound of seagulls crying overhead as hairstylist and makeup artist extraordinaire, Aurelia "Rae" Thompson, prepared for another busy day at her family-owned salon, Thompson's Touch.
+
+Rae stood outside her cozy beachside bungalow, a vintage-style cottage with a wraparound porch adorned with colorful sea glass and driftwood. The windows were covered in a jumble of hair care products, beauty magazines, and half-finished makeup tutorials, giving the exterior a cluttered but charming appearance. A bright yellow umbrella hung from the roof, protecting her clients' skin from the sun as they arrived for their appointments.
+
+Inside, the salon was a whirlwind of activity. Rae had been running it with her mother's guidance since she was a teenager, and now she was taking over the reins when her mother retired to pursue other interests. The walls were painted a soothing shade of light blue, and the floors creaked beneath their feet as clients entered or exited.
+
+As Rae tied up her curly brown hair in a loose bun, her phone buzzed with an incoming text from her best friend and stylist, Lily LaRue: "What's the latest drama to get your hair fix?"

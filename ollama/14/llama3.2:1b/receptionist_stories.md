@@ -1,0 +1,9 @@
+It was a typical Monday morning at Oakwood Hospital, with the sounds of muffled voices and the hum of fluorescent lights overhead casting an eerie glow through the windows of the bustling reception desk. The air was thick with the scent of freshly brewed coffee and the faint hint of last night's leftovers from the hospital cafeteria.
+
+Among the sea of white coats and stern-faced nurses, Emily Wilson, a soft-spoken receptionist with a warm smile and an unwavering dedication to her job, sat at her desk, sipping on a lukewarm cup of coffee. Her long, curly brown hair was tied back in a ponytail, and her eyes sparkled with a hint of excitement as she checked her watch for what felt like the hundredth time that morning.
+
+As one of the newest members of the hospital's administrative team, Emily had been tasked with helping to coordinate the day's schedule and answer any queries from the doctors and nurses. She took pride in being a problem-solver and a master of multitasking, able to juggle multiple phone calls and emails at once with ease.
+
+Just as Emily was starting to feel like she was getting into a rhythm, her computer beeped, signaling an incoming message from the hospital's IT department. Her heart skipped a beat as she opened the email and scanned the contents – it seemed that one of the doctors had reported a minor glitch in the hospital's electronic medical record system, and they needed someone to investigate and resolve it on the spot.
+
+With a deep breath, Emily let her gaze drift away from the screen, and began to mentally prepare herself for the challenge ahead. She was ready to put her reception skills to the test and prove herself as more than just a face at the front desk – she was a problem-solver, a whiz kid with a passion for patient care.

@@ -1,0 +1,7 @@
+It was a sunny Saturday morning in downtown Los Angeles, the kind of day that made you want to grab your favorite coffee and spend it browsing through local boutiques. For 22-year-old makeup artist and hairstylist, Maya Singh, this particular day promised to be just that.
+
+Maya lived for days like this, where she got to wake up early, run errands, and finally have a few hours of uninterrupted time to focus on her passion – transforming the faces of Los Angeles's fashion elite. She had always been fascinated by the world of cosmetics, and after completing her apprenticeship with a renowned beauty salon in New York City, she made the bold decision to leave it all behind and chase her dreams.
+
+As she drove through the bustling streets of downtown LA, Maya couldn't help but feel a sense of excitement and possibility. She had just landed a new client – none other than the infamous socialite, Sophia Grant – who was looking for a makeup artist to create a custom look for a high-profile charity gala. The challenge was on, and Maya was ready to put her skills to the test.
+
+Maya pulled up to the luxurious penthouse apartment where Sophia's team had arranged for her workspace. She took a deep breath, grabbed her kit, and began to mentally prepare herself for the day ahead – a day that would not only change Sophia's face but also bring new opportunities and challenges into her life as a young, aspiring makeup artist in Los Angeles.

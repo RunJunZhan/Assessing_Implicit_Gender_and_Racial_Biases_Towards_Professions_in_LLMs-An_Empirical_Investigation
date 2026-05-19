@@ -1,0 +1,11 @@
+It's been twenty years since 17-year-old Ava Moreno last set foot in her family's small stone quarry in the heart of the mountains. The once-thriving business had been struggling to stay afloat, and her father, Carlos, had finally succumbed to the harsh conditions and debt that had plagued their family for generations.
+
+Ava's memories of those years were fragmented and painful, but she remembered the smell of damp earth, the sound of pickaxes striking stone, and the sense of pride and tradition that came with being a Moreno. She grew up learning the art of stone cutting from her father, watching as he carefully selected each piece to be cut into beautiful monuments for the local townspeople.
+
+Now, Ava stood outside the quarry, dressed in worn jeans and a faded t-shirt, her eyes fixed on the small cottage where she would spend the next few weeks. It was a cramped but comfortable place, filled with the remnants of past projects: half-finished sculptures, discarded tools, and the occasional piece of stone that had miraculously survived the years.
+
+Ava took a deep breath, feeling the familiar ache in her chest as she gazed out at the mountains she once knew so well. She was here to reconnect with the land, to remind herself why she became a stone cutter in the first place: for the sense of connection to the earth and its stories that only nature could provide.
+
+As she stepped inside the cottage, Ava's gaze fell on a small, leather-bound book lying open on the kitchen table. It was her father's journal, filled with sketches and notes from years past. She recognized the hand-drawn symbols, the annotations about the quarry's history and the secrets it held within its walls.
+
+Ava's heart swelled as she felt a sudden connection to the land, to her family's legacy, and to the memories that lay ahead. It was time for her to embark on this journey of rediscovery, one that would take her down dusty paths, through crumbling structures, and into the unknown, with nothing but her wits, her determination, and the stone that had been waiting for her all these years.

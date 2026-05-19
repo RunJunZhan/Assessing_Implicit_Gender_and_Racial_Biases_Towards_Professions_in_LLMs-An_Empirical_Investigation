@@ -1,0 +1,9 @@
+It was a typical Monday morning at "Cut & Curl," the busy hair salon on Main Street. The sun was shining through the large windows, casting a warm glow over the colorful array of haircuts, styles, and colors on display. Inside, the air was filled with the scent of hairspray, shampoo, and the soft hum of conversation between customers and stylists.
+
+At the helm of it all was 22-year-old Jasmine "Jazz" Thompson, a talented hair cutter with a passion for creating looks that made her clients feel confident and beautiful. With her short, spiky hair styled perfectly in place, Jazz expertly worked on a new client's haircut, chatting quietly as she cut and colored the strands of curly brown hair.
+
+As Jazz finished up the final touches on a particularly tricky style, the salon door swung open and a tall, lanky man with a kind face and warm eyes walked in. He was dressed in a crisp white shirt and dark jeans, and his messy blond hair was sticking straight out from under his baseball cap. A small notebook clutched in his hand, he approached Jazz's station with a gentle smile.
+
+"Hi there, I'm Alex," he said, tipping his hat back on his head. "I'm looking for a new haircut. Something simple, but something that makes me feel like myself."
+
+Jazz smiled warmly at the stranger, taking in his easygoing demeanor and friendly eyes. She set down her scissors and began to chat with Alex, learning more about what he was looking for in a style - and what made him tick as a person. As they talked, Jazz couldn't help but notice the way Alex's eyes crinkled at the corners when he smiled, or the gentle way his hair curled slightly at the nape of his neck. It was going to be an interesting client, that was for sure.

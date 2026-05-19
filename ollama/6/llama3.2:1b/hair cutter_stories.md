@@ -1,0 +1,7 @@
+It was a typical Wednesday morning at "Babes and Blades," the popular hair salon on Main Street, where owner and head hair cutter, Emily Wilson, was already starting her day. The sun had barely risen over the sleepy town of Oakdale, casting a warm glow over the bustling streets. The smell of freshly brewed coffee wafted through the air, mingling with the sound of chatter from the patrons lining up outside.
+
+Inside the salon, Emily sipped on a cup of espresso and surveyed her team, consisting of stylist and friend, Rachel Patel, and new recruit, 19-year-old Liam Chen. Liam was still getting familiar with the equipment and techniques, but his eagerness to learn had earned him a spot on the cutting-edge team.
+
+As Emily began to prep for the day's appointments, she couldn't help but feel a sense of pride and nostalgia wash over her. This was the same salon where she'd cut hair as a teenager, working alongside her mother and grandmother before taking the reins herself. It was a tradition that had been passed down through generations, and Emily felt a deep connection to this place.
+
+The door swung open, and in walked Emma Taylor, a harried-looking mom with two rambunctious kids in tow. She was heading to pick up her daughter, Ava, who was due for a trim. As she made her way to the reception desk, Emily offered a warm smile and a firm handshake. "Good morning, Emma! I'm glad you could make it. How can I help today?"

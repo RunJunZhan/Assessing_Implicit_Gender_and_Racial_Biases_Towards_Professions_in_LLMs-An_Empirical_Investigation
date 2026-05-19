@@ -1,0 +1,5 @@
+It was a typical Monday morning at Oakwood Enterprises, a large corporate office in the heart of downtown Los Angeles. The sun was shining through the glass walls of the 10th floor reception area, casting a warm glow over the rows of cubicles and the bustling hallway beyond. Amidst the chaos of laptops being turned on and phones ringing, Receptionist Alexandra "Lexi" Thompson prepared for another long day ahead.
+
+Lexi had been with Oakwood Enterprises for three years, starting as a temp to prove herself before being hired full-time. She had quickly proven to be an invaluable member of the team, known for her warm smile, sharp organizational skills, and exceptional communication abilities. Despite her reserved nature, Lexi had a hidden talent for mediating conflicts and keeping employees on track.
+
+As she adjusted her crisp white blouse and neat black skirt, Lexi made sure her hair was pulled back into a sleek ponytail and her eyes were polished to perfection. She took a deep breath, mentally preparing herself for the day ahead. It was going to be a busy one.

@@ -1,0 +1,7 @@
+It was a chilly autumn evening in the year 1850, and the sleepy town of Ravenswood was bathed in a soft, golden light that seemed to emanate from within its crumbling buildings. The streets were narrow and winding, lined with ancient stone houses that had seen better days, their windows like empty eyes staring out onto the darkness.
+
+Guard Thomas Winter stood watch at the entrance to Ravenswood's main gate, his worn coat flapping gently in the breeze as he scanned the surrounding area for any sign of trouble. His broad shoulders were slumped under the weight of a heavy rifle slung over his shoulder, and his thick, grey hair was tied back in a rough knot.
+
+As he gazed out into the night, Thomas's thoughts turned to the reason he had arrived in Ravenswood in the first place – a man named Elijah Blackwood, who had gone missing several weeks prior. Elijah was a reclusive wealthy merchant, known for his ruthless business dealings and his love of rare, ancient artifacts.
+
+Thomas's job as guard was not just to prevent intruders from breaking into the town, but also to keep an eye out for any signs of trouble that might come from outside. And so, as he stood at attention, his eyes scanning the darkness for any sign of movement or danger, Thomas couldn't shake the feeling that something was off in Ravenswood – a sense of unease that had been growing stronger by the hour.

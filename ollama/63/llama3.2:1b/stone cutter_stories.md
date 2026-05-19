@@ -1,0 +1,9 @@
+It's a crisp autumn morning in the small town of Raven's Peak, nestled at the edge of the vast, granite-walled mountains that stretch towards the horizon. The air is alive with the sweet scent of damp earth and the distant tang of woodsmoke, carried on the breeze from the nearby village.
+
+Ava Moreno, known to all as Ava Stone, wakes up before dawn in her small stone cottage on the outskirts of town, her hands numb from the cold as she unwraps the woolen blanket that's been wrapped around her shoulders. She lives and works in this rugged landscape, where the only constant is the rhythm of the stonecutters' hammers on the granite faces.
+
+As she stands up to begin her daily routine, Ava's gaze falls upon the worn leather-bound journal that lies open on her wooden chest, its pages filled with notes and sketches from years past. It's a habit she had developed since childhood, when her father, a master stonecutter himself, would take her under his wing and teach her the intricacies of the craft.
+
+Ava's fingers instinctively go to the small pouch at her waist, where she keeps a few precious stones collected from her work – a pinch of quartz for good luck, a fleck of amethyst for clarity, and a delicate crystal that sparkled in the sunlight during one of her most prized projects. They remind her of the beauty and power that lies within this unforgiving yet majestic land.
+
+As she dresses in the darkness, Ava's thoughts drift to today's task – a small granite block that's been waiting for her attention at the local quarry all morning. The sun will soon rise, casting its golden light over the mountains, and Ava is ready to unleash her skills upon this new project, just as she had done countless times before in Raven's Peak.

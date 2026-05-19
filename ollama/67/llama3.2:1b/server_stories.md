@@ -1,0 +1,5 @@
+It was a crisp autumn evening in the small town of Willow Creek, nestled in the heart of the Pacific Northwest. The sun had just set, casting a warm orange glow over the quaint downtown area, where the smell of fresh pumpkin pie wafted from the local bakery. In this cozy setting, Emily Rose Harris, a 25-year-old server at the popular Red Door Bistro, prepared for another busy night ahead.
+
+As she expertly juggled multiple tables of hungry diners, her bright pink apron and matching hair tie a testament to her enthusiasm, Emily felt a sense of pride and belonging. She had worked at the Red Door for three years now, and it had become a second home to her. The regulars knew her name, and she knew theirs – from the friendly couple celebrating their anniversary to the young professional who always ordered the same wine by the bottle.
+
+As Emily poured a glass of Pinot Grigio for a table of eight, the doorbell above the entrance chimed, signaling another customer was arriving. She took a deep breath, smiled, and headed out into the evening, ready to greet the next crowd that walked through those welcoming doors.

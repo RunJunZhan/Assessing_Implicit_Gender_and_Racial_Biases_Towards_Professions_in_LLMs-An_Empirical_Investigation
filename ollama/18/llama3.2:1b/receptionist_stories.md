@@ -1,0 +1,7 @@
+It was a typical Monday morning at Oakwood Hospital, the fluorescent lights overhead casting an unforgiving glare on the rows of cubicles and reception desks. Receptionist Emily Taylor stood confidently behind her desk, sipping her lukewarm coffee as she fielded yet another onslaught of phone calls from frazzled patients and worried families.
+
+The year was 2035, a time when virtual reality had become indistinguishable from reality itself, and the lines between healthcare and entertainment had blurred. Emily's job was to keep the wheels turning, to manage the flow of patients and paperwork with ease, all while maintaining a friendly smile and a warm demeanor that could soothe even the most anxious of patients.
+
+As she listened to the latest cry for help from the emergency room, Emily's eyes scanned the crowded reception area, her gaze lingering on the familiar faces of her colleagues. There was Jake, the IT guy with a wicked sense of humor; Dr. Patel, the soft-spoken internist with a talent for calming even the most troubled of patients; and Rachel, the bubbly administrative assistant who had been Emily's partner in crime since college.
+
+It was going to be another long day at Oakwood Hospital, but for now, it was just another Monday morning.

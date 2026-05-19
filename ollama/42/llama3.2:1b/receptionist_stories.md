@@ -1,0 +1,7 @@
+It was a typical Monday morning at Oakwood Medical Center, the sounds of muffled conversations and gentle beeps from the hospital's machines filling the crisp autumn air. Receptionist Emily Wilson wiped the sweat from her forehead as she sipped her lukewarm coffee, scanning the crowded waiting room with a practiced eye. Her dark hair was tied up in a ponytail, and her faded yellow sundress seemed out of place amidst the sterile surroundings.
+
+As she surveyed the sea of worried faces, Emily's mind wandered to the long weekend she'd just left behind, the excitement of summer vacation replaced by the monotony of Monday morning routine. She had spent the weekend helping her grandmother with various tasks around their small cottage on the outskirts of town, but nothing compared to the thrill of a new week at work.
+
+Emily's gaze drifted back to the hospital doors, where a steady stream of patients flowed in and out. There was always something going on here – births, surgeries, or just the usual mix of illnesses and complaints that came with being a part of Oakwood Medical Center's daily life. As the first patient of the day began to arrive, Emily let her thoughts drift back to her job, her routine, and the familiar rhythms of her new reality as a receptionist at this busy medical hub.
+
+The sound of footsteps echoed outside, signaling the arrival of another patient. Emily's heart quickened slightly as she grabbed her chair and stood up, ready to greet the next arrival with a warm smile and an efficient greeting.

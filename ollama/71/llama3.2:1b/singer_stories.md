@@ -1,0 +1,7 @@
+It's a warm summer evening in the small coastal town of Ravenswood, where the sound of the waves gently lapping against the shore creates a soothing melody that echoes through the streets. The sun has just set, casting a golden glow over the quaint town, and the smell of saltwater taffy and fresh seafood wafts through the air.
+
+Among the crowd gathered at the local music venue, "The Cove", is 22-year-old Ava Moreno, a talented singer-songwriter who has been making waves in the music scene with her soulful voice and captivating stage presence. Her long, dark hair is tied back in a loose ponytail, and her bright green eyes sparkle with excitement as she takes the stage to perform her hit single, "Ocean Waves".
+
+As Ava begins to sing, the crowd is transported to a world of nostalgia and longing, their emotions resonating deeply with her lyrics. The music swirls around them, a hypnotic blend of acoustic guitar, soaring vocals, and a driving beat that gets the whole audience moving.
+
+Ava's eyes lock onto the seafront view beyond the venue's windows, where the stars are beginning to twinkle in the night sky. She takes a deep breath, letting the music wash over her, and begins to lose herself in the performance, the sound of her voice echoing off the waves as she belts out her signature tune.

@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Oakdale, nestled in the heart of rural Georgia. The sun was just starting to rise over the horizon, casting a warm glow over the quaint streets and homes. Officer Emilia "Mia" Thompson stood outside her squad car, sipping on a lukewarm cup of coffee as she checked her watch for what felt like the hundredth time.
+
+Mia had been a cop in Oakdale for five years, starting out as a rookie officer assigned to the local precinct. She had always known that this was where she wanted to be - surrounded by friendly faces and familiar places, with a sense of community that you rarely found in big cities. As she finished her coffee and tucked the cup into her apron pocket, Mia's thoughts turned to her family and the reason she was really here: to get married and start a new life.
+
+As she climbed into her patrol car, a faded gold Buick with a worn-out trunk, Mia took a deep breath of the autumn air. The scent of ripe peaches and damp earth filled her lungs, and for a moment, she felt at peace. She had spent years building a reputation as one of Oakdale's most respected officers, but tonight, as she drove through the quiet streets in search of potential calls, she couldn't shake off the feeling that something was off.
+
+The radio crackled to life behind her, and Mia answered, " dispatch, this is 22-1. What's your situation?"

@@ -1,0 +1,9 @@
+It was a drizzly autumn morning in the small town of Willow Creek, where the streets were lined with old oak trees and the houses seemed to lean in, as if sharing secrets. The sun had barely risen over the horizon when 22-year-old Jesse "Jazz" Thompson stepped out of his small apartment, shaking off the sleepiness that clung to him like a damp blanket.
+
+Jazz was a janitor at the local high school, where he spent most of his days cleaning up after students who seemed to think the world ended on Fridays. He worked long hours, often until 6 or 7 pm, and then headed home to spend time with his family. His mom cooked dinner for him every night, and his dad worked as a mechanic at the local garage.
+
+As Jazz made his way to the school, he noticed a sense of unease in the air. The students seemed nervous, fidgeting with their backpacks or glancing over their shoulders as if worried about something. The principal's words still lingered in Jazz's mind: "We've had some strange reports coming in lately... things happening around the school that don't seem to make any sense."
+
+Jazz didn't believe all the rumors, but he couldn't shake the feeling that something was off. He arrived at the school just as the bell rang, signaling the start of another long day ahead. As he began to sweep the floor in his usual spot near the auditorium, Jazz couldn't help but wonder what lay hidden beneath the surface of Willow Creek's seemingly idyllic community.
+
+The janitor's cart was stacked with cleaning supplies and trash bags when Jazz arrived at the school for his first class. The fluorescent lights overhead hummed a familiar tune as he started to work, his movements smooth and practiced after years of doing the same job day in and day out. But as he took a moment to glance around the empty hallway, Jazz couldn't help but feel that something was waiting just out of sight, watching him.

@@ -1,0 +1,7 @@
+It was a crisp autumn morning in New Orleans, the kind that made you want to breathe in deeply and let the city's unique energy course through your veins. The streets were alive with the sounds of jazz drifting from Preservation Hall, the scent of beignets wafting from Cafe du Monde, and the smell of magnolia blossoms clinging to every branch of the historic Oak Street Tree.
+
+Among the hustle and bustle of the French Quarter was a small hotel, its facade camouflaged by layers of ivy and the soft glow of string lights. This was Hotel Indigo New Orleans, a place where time stood still, and the only thing that moved was the rhythmic swing of jazz in the background.
+
+At the heart of this cozy haven was 22-year-old bell hop, Adèle LaFleur. With her curly brown hair tied back in a loose bun, and a warm smile that could light up a room, Adèle was always dressed to impress – though she never wore much more than a crisp white apron, a pair of comfortable black jeans, and her trusty silver bell.
+
+As the morning sun rose over the rooftops, casting a golden glow over the city, Adèle made her way through the crowded lobby, expertly juggling a tray of steaming cups of coffee while chatting with the other staff members. The soft chime of the bells on her apron announced her arrival at the front desk, where she greeted guests with a warm "Bonjour" and began her daily ritual – ensuring that every traveler felt like royalty as they departed for their next adventure.

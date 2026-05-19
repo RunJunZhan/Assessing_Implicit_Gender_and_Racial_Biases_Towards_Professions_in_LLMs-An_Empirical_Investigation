@@ -1,0 +1,11 @@
+It was a crisp autumn evening in the small town of Willow Creek, nestled in the heart of the Pacific Northwest. The sun had just set, casting a warm orange glow over the quaint streets and shops that lined Main Street. Inside McGillicuddy's Pub, a cozy gathering spot for locals and visitors alike, bartender Ruby Flynn polished a glass with a white cloth, her dark hair tied back in a loose ponytail.
+
+Ruby was a native of Willow Creek, raised on stories of its rich history and the people who lived there. She had grown up listening to tales of her great-grandfather's adventures as a sailor, which eventually led him to settle down in this small town. Over the years, Ruby had learned the ins and outs of running McGillicuddy's, from pouring pints to serving up warm smiles.
+
+As she expertly crafted a complex cocktail for a group of rowdy college students, the sounds of laughter and music drifted into the pub through the open door. The smell of burgers and fries wafted in from the kitchen, mingling with the hint of wood smoke and damp earth that came from the town's many shops and homes.
+
+Outside, the stars were beginning to twinkle in the night sky, a reminder that summer was fading away, and autumn was slowly taking its place. Ruby felt a sense of comfort in this moment, surrounded by the familiar rhythms of her community, as she poured another drink for a young couple celebrating their new relationship. As they raised their glasses in a toast, Ruby couldn't help but feel a sense of pride in this little town she loved, where people knew each other's names and stories.
+
+The door to McGillicuddy's swung open once more, admitting a chill gust of wind that cut through the warm air inside. A tall, lanky figure strode in, shaking off his coat and sending it slapping against the floorboards. It was Finnley "Finn" Thompson, Ruby's old friend from high school, who had recently returned to Willow Creek after years of traveling the world.
+
+Ruby's expression softened as she greeted Finn with a warm smile, her eyes crinkling at the corners. "What brings you back home, Finn?"

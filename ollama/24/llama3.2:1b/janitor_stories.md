@@ -1,0 +1,9 @@
+It's a crisp autumn morning in the small town of Oakdale, nestled in the heart of rural America. The sun rises over the sleepy streets, casting a warm glow over the quaint homes and bustling town square. In the midst of this tranquil scene, 25-year-old Jesse "JD" Davenport makes his way through the deserted hallways of Oakdale High School, his janitorial cart loaded with supplies and cleaning equipment.
+
+As JD navigates the empty corridors, he can't help but feel a sense of familiarity with the place. He's worked at Oakdale High for three years, and has grown accustomed to the worn carpets, the dusty classrooms, and the occasional surprise visitor (usually just a curious cat or two). Despite the monotony of his job, JD takes pride in keeping the school clean and organized, and he knows every inch of this hallways like the back of his hand.
+
+JD's small apartment, located on the outskirts of town, is a cozy sanctuary that reflects his laid-back personality. The walls are adorned with posters of his favorite band, and the TV is always tuned to an old MTV channel, where he can catch up on the latest music videos and trends. His bed is a mess of blankets and pillows, but JD has learned to sleep soundly in this cluttered haven, surrounded by the comforting sounds of his favorite TV shows and the distant hum of traffic outside.
+
+As JD approaches the school's main entrance, he notices a sense of unease in the air. The hallways are eerily quiet, and the usually cheerful chatter of students has been replaced by hushed whispers and nervous glances. JD exchanges a curious glance with his coworker, Mrs. Thompson, as she approaches him with a worried look on her face.
+
+"JD, I need to talk to you about something," she says, her voice barely above a whisper. "There's been some... unusual occurrences in the school lately. Equipment malfunctioning, strange noises at night, and some students have reported seeing things that can't be explained."

@@ -1,0 +1,7 @@
+It's a warm summer evening in the small coastal town of Crescent Bay, where the streets are lined with quaint shops and restaurants that seem to have been plucked straight from a vintage fairytale. The sun has just set, casting a golden glow over the town as the sound of gentle waves crashing against the shore creates a soothing melody.
+
+Aria Everett, a 25-year-old singer-songwriter, stands on the edge of the beach, her long, curly brown hair blowing gently in the breeze. She's wearing a flowing white tank top and a pair of distressed denim shorts, giving her a carefree, beachy vibe that seems to match the relaxed atmosphere of the evening.
+
+As she strums a melancholic chord on her guitar, Aria gazes out at the endless expanse of ocean, her eyes lost in thought. She's been playing music for as long as she can remember, and Crescent Bay has always been a special place for her – a place where she feels most at home.
+
+It's here that Aria's life took a dramatic turn, one that would lead her to leave behind the comforts of her small hometown and chase her dreams to the city. But tonight, on this balmy summer evening, Aria is back in Crescent Bay, reconnecting with her roots and the people she loves – including the one person who might be the key to unlocking a new chapter in her life: Max Wellington, the handsome and brooding musician who's been her biggest fan since childhood.

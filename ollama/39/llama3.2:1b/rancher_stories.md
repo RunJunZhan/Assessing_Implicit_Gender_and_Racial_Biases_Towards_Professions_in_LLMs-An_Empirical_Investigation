@@ -1,0 +1,6 @@
+Here's a potential story setup for you:
+The sun was just starting to rise over the vast, rolling hills of Red Rock Ranch, casting a warm orange glow over the dusty main street and the sprawling fields of cattle that covered one side of town. The air was crisp and clean, carrying the scent of fresh earth and green grass. In a small, weathered cabin on the outskirts of town, Jack McCaffrey stirred in his sleep, the sound of crickets and birdsong muffled by the thick blankets that wrapped around him.
+
+Jack was a rugged, no-nonsense rancher, with a strong jawline and piercing blue eyes that seemed to see right through you. He had lived on Red Rock Ranch all his life, learning the ins and outs of cattle ranching from his father before him. His parents had married young, and Jack's mother had passed away when he was just a boy, leaving him to take care of his younger siblings and eventually inherit the ranch. Now, at 35 years old, Jack was still going strong, with a reputation as one of the most reliable and hardworking ranchers in the county.
+
+But little did anyone know, a storm was brewing on the horizon, one that would test Jack's skills as a rancher like never before. A cold front was moving in, bringing with it fierce winds and heavy rains, and Jack had just received word that his prized cattle were in danger of being wiped out by the storm.

@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the sun rose over the streets lined with quaint shops and restaurants. The air was alive with the sweet scent of freshly picked apples from the local orchard, and the sound of leaves rustling in the gentle breeze carried on the wind.
+
+Ava Morales adjusted her name tag on the back of her hair salon's door, a warm smile spreading across her face as she gazed out at the bustling morning routine. Her salon, "Morales Cuts," was a staple in town, known for its exceptional service and state-of-the-art equipment. Ava had inherited the salon from her father, who had started it decades ago. She took pride in carrying on his legacy, creating stunning hairstyles that made her clients feel confident and beautiful.
+
+As she prepped for the day, Ava's thoughts turned to her best friend and business partner, Rachel Lee. They had met in college, bonding over their shared love of hair and fashion. Rachel worked as a makeup artist in town, and together, they had built Morales Cuts into the popular destination it was today.
+
+The phone on Ava's counter jolted her out of her thoughts, breaking the morning calm. "Ava, you've got a client!" Rachel's voice called out from across the room.

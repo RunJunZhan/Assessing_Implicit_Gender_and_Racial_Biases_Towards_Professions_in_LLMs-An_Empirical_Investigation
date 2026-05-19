@@ -1,0 +1,9 @@
+It's been a few years since the small town of Willow Creek was rocked by the sudden and mysterious disappearance of its beloved music sensation, Aurora "Rory" Wynter. Rory had been the face of the town's thriving music scene, known for her powerful vocals and captivating live performances that had drawn in crowds from all over the country.
+
+Now, two years after her vanishing act, Rory's family and friends are still reeling from the loss of their shining star. Her parents, Mark and Emma Wynter, run a small music venue in the heart of town, where Rory would often perform before big shows. The venue, aptly named "Rory's Rock House," has been closed for several months, and it's unclear what exactly happened to her.
+
+Aurora "Rory" Wynter was born and raised in Willow Creek, and she grew up surrounded by the town's rich musical heritage. She began singing at local festivals and events when she was just a teenager, quickly gaining a loyal following among the town's youth and music enthusiasts alike. As she got older, her talent and charisma took her to bigger stages, and she eventually signed with a major record label.
+
+Rory's family is still trying to come to terms with what happened to their daughter. Mark Wynter, Rory's father, is a musician himself and has been performing in town for years. He's said that he saw something on the night of Rory's disappearance that he can't explain – a shadowy figure lurking outside her apartment building. Emma Wynter, Rory's mother, is still searching for any leads or clues that might have helped her daughter stay safe.
+
+As the search for Rory continues, her family and friends are left to pick up the pieces and try to move forward without their beloved star. Little do they know, the truth about what happened to Rory may lie deeper than they ever imagined...

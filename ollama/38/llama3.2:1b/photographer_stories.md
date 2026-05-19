@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the quaint town of Ravenswood, nestled in the heart of the Pacific Northwest. The sky was a deep shade of indigo, with clouds that seemed to be made of the finest cotton candy. The air was alive with the sweet scent of ripe apples and the distant hum of leaves crunching beneath the feet of early risers.
+
+Aurora "Rory" Thompson stood at the edge of the town square, her camera slung over her shoulder as she gazed out at the bustling morning scene. She had always loved capturing the beauty of Ravenswood, with its winding streets lined with towering trees and its people who seemed to radiate a warmth that could light up even the darkest of days.
+
+Rory's photography business, "Frostbite Fotos," was her passion project, and she spent most of her days exploring the town, snapping photos of its hidden corners and secret spots. She had always dreamed of one day turning her hobby into a career, and now, at 25, she finally felt like she was on the verge of making that dream a reality.
+
+As she stood there, lost in thought, Rory noticed a group of townsfolk gathered around the old oak tree in the center of the square. They were chatting excitedly, their faces aglow with an air of anticipation, and Rory's curiosity was piqued. She had heard whispers of something big happening in Ravenswood, but she hadn't put much stock in them. Now, as she watched the crowd gather around the tree, she couldn't shake the feeling that this might be it – the moment she would finally uncover the secrets that Ravenswood held within its walls.
+
+With a sense of excitement building in her chest, Rory took a deep breath and stepped forward, camera at the ready, to capture the next chapter in the story of Ravenswood's most famous resident.

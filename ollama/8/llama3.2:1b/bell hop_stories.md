@@ -1,0 +1,7 @@
+It was a crisp autumn morning in New Haven, the kind that made you want to wrap up warm and cozy after a long week of school. The streets were quiet, save for the occasional passing car or the chirping of birds as they began their daily migration. In a small, family-owned hotel on Elm Street, nestled between a vintage bookstore and a bustling diner, the bellhop, Emma Rose Wellesley, was busy preparing for another day of welcoming guests into her home away from home.
+
+Emma's parents had owned the hotel, aptly named The Haven, for over 20 years, and she had grown up hearing stories about its rich history and warm hospitality. After completing her studies in hotel management, Emma had taken over the reins as bellhop, determined to keep the tradition alive while also forging her own path.
+
+As she polished a gleaming silver tray and loaded it with fresh towels, Emma's mind wandered to the evening's guests, a group of rowdy college students heading to a party downtown. She had helped them settle into their rooms earlier that morning, making sure they were comfortable and ready for the night ahead. Now, as she worked, she mentally prepared herself for the chaos that was bound to ensue.
+
+The sound of keys jangling in the lobby and the hum of conversation from the guests outside signaled the start of another busy day at The Haven. Emma took a deep breath, feeling a sense of pride and belonging wash over her. This was more than just a job – it was her home, and she loved nothing more than making every guest feel like family.

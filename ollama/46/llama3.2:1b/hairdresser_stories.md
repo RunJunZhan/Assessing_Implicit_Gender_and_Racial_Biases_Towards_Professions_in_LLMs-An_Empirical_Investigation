@@ -1,0 +1,7 @@
+It was a typical Friday morning at "Tresses and Tones," the popular hair salon in the heart of downtown Manhattan. The sun was shining through the large windows, casting a warm glow over the bustling waiting room. Inside, the air was filled with the sweet scent of freshly baked pastries and the soothing sound of soft music playing on the background speakers.
+
+At the front counter, hairdresser Emily Patel stood poised behind her station, greeting customers with a warm smile and a friendly "hello." Her long, dark hair was tied back in a sleek ponytail, revealing her bright hazel eyes as she expertly combed through her curls before beginning to work on her next client.
+
+It was just another busy morning for Emily, who had been running the salon since college. She loved nothing more than helping women feel confident and beautiful, whether it was through a simple blowout or a complex color transformation. As she worked, she thought back to the early mornings of her childhood in Mumbai, where her mother would spend hours styling her hair with traditional Indian techniques before leaving for work.
+
+Now, at 25 years old, Emily had mastered the art of modern hairstyling and was proud to be one of the few female owners of a thriving salon in the city. She took pride in her work, always striving to create unique looks that made each client feel like a queen. Little did she know, this particular Friday morning would bring a surprise that would set her day - and her life - on a whole new trajectory.

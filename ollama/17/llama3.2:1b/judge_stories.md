@@ -1,0 +1,7 @@
+It was a typical Monday morning in the bustling city of New Haven, with the sounds of honking cars and chattering pedestrians filling the air. In a small, upscale office building on Main Street, Judge Alexandra "Lexi" Thompson sat at her desk, sipping her coffee and going over the day's schedule for her upcoming trial. Lexi was known throughout the city for her fair yet firm approach to justice, and today was no exception.
+
+As she scanned the list of defendants, one name caught her eye: Victor Martinez, a notorious gang leader accused of multiple murders in the city's underbelly. Lexi had taken an interest in this case from the beginning, citing his history of violence against women and children as evidence. Her colleagues had labeled her obsession with "Judge Ruthless," but Lexi knew it was what drove her to be a better judge.
+
+The courtroom doors opened, and Victor Martinez entered, his piercing gaze scanning the room before locking onto Lexi. She nodded to herself, her eyes never leaving his face, as he made his way to the witness stand. The city's finest police officers stood behind him, their expressions a mix of curiosity and caution.
+
+As the trial began, Lexi felt a familiar sense of tension in the air. This was going to be a long day.

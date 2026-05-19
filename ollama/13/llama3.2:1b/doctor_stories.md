@@ -1,0 +1,6 @@
+Here's a potential story opening:
+The sun had long since set on the bustling city of New Haven, casting a golden glow over the towering skyscrapers and crowded streets. Dr. Sophia Patel stood outside the hospital, her eyes fixed on the sleek, modern building that housed her medical practice. It was a chilly autumn evening, but Sophia's warm smile could light up even the darkest of nights.
+
+As she checked her watch for what felt like the hundredth time, Sophia's mind began to wander back to the chaotic day she'd just left behind. She had spent hours running from emergency room to emergency room, tending to patients who had been victims of a devastating fire that had ravaged a nearby neighborhood. The smell of smoke and char still lingered in her nostrils, even as she changed out of her scrubs into a comfortable pair of jeans and a faded band tee.
+
+Sophia's thoughts were interrupted by the sound of footsteps approaching from the alleyway behind her. She turned to see her best friend and fellow doctor, Rachel Lee, pushing open the hospital door with a mischievous grin on her face. "Hey, Doc! I just got back from grabbing some dinner at that new Italian place downtown," Rachel said, dropping her bag onto the bench beside Sophia's car. "Want to join me?"

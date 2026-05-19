@@ -1,0 +1,9 @@
+It was a crisp autumn morning in New Haven, the kind that made you want to wrap yourself in a warm blanket and savor the aroma of freshly brewed coffee as it wafted from the café on Main Street. The sun was just starting to peek over the rooftops, casting a golden glow over the charming town square, where the local farmers' market was bustling with activity.
+
+In a small, unassuming building nestled between a vintage bookstore and a bustling deli, the Bellhop Inn had been a staple of New Haven's hospitality scene for generations. The sign above the door read "Bellhops Welcome Home," in elegant script, and the bell on the door jingled merrily as it was rung out by the inn's manager, a warm-eyed woman named Emily Thompson.
+
+Emily had grown up in New Haven, just like her father before her, who had inherited the Bellhop Inn from his own father. She knew every nook and cranny of the building, every creaky floorboard, every hidden corner where a weary traveler might find refuge. And as the manager, she took great pride in ensuring that every guest felt like royalty upon their arrival.
+
+As Emily unlocked the door to the inn's staff room, a bellhop named Jack slipped out, his bright blue uniform fluttering behind him like a flag. He had been working at the Bellhop Inn for three years now, and he knew just how to make everyone feel welcome – or at least, as warm and welcoming as it was possible to be in a small town like New Haven.
+
+"Good morning, Jack!" Emily called out, her voice carrying across the room as she began to prep for the day's guests. "We've got a doozy of an arrival team coming in soon. I'll get them settled into their rooms and bring up breakfast...and your trusty bell to keep everyone from ringing too loudly."

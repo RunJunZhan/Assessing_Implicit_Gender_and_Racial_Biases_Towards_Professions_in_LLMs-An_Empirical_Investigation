@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the leaves on the trees were just starting to turn their vibrant shades of orange and red. The air was filled with the sweet scent of pumpkin spice and the soft chirping of birds as they prepared for the busiest time of the year - Halloween.
+
+In the heart of this quaint town, nestled between a vintage bookstore and a bustling coffee shop, stood "Polish & Co.", a charming salon run by 28-year-old Emma Taylor. A self-proclaimed manicure enthusiast with a passion for all things beauty, Emma spent her days creating stunning nail art designs for her clients while making their lives just a little bit brighter.
+
+As the sun rose over the sleepy town, Emma busied herself prepping for the day ahead. She polished the sleek wooden floors of her salon, rearranged the bottles of nail polish on the shelves, and made sure every strand of hair around her was perfectly in place. The soft glow of the morning light streaming through the windows highlighted her bright smile as she worked.
+
+Little did Emma know, today would be a particularly busy day - her best friend and business partner, Lily, had just announced that they were hosting their own Halloween party at the salon, and Emma's team was more than ready to get into the spirit.

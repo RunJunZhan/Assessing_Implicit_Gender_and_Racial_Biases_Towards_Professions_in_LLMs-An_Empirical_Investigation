@@ -1,0 +1,5 @@
+It was a chilly autumn morning in the small town of Ravenswood, nestled in the heart of the Pacific Northwest. The misty veil that shrouded the town's streets and forests seemed to cling to every surface like a damp shroud, as if trying to keep secrets from prying eyes. Dr. Emily Alistair Wynter stood at the edge of the town square, her eyes scanning the gathering crowd with a mix of curiosity and trepidation.
+
+As a forensic psychologist specializing in the minds of serial killers, Emily had spent years tracking down the most elusive perpetrators, but she had never been one for small towns. There was something about Ravenswood's seemingly idyllic facade that made her question whether she was truly ready to face whatever darkness lay within its walls.
+
+With a deep breath, Emily pushed open the creaky door of the local police station and stepped inside, her gaze adjusting to the warm glow of the fluorescent lights overhead. The air was thick with the smell of freshly brewed coffee and the hum of computers, but it was what she saw that made her heart skip a beat – a single sheet of paper on Emily's desk, bearing a message scrawled in red ink: "They're watching."

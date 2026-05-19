@@ -1,0 +1,5 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the air was alive with the sweet scent of ripe pumpkin and the sound of leaves crunching beneath the feet of residents sipping their morning coffee. Among the sleepy streets and quaint shops, one place stood out - "Snip & Curl," the hair salon owned by 22-year-old hairstylist, Ember Flynn.
+
+Ember woke up before the sun rose, as she always did, to prep for another busy day at the salon. She lived for making people feel confident and beautiful in their own skin, whether it was cutting a colleague's receding hairline or styling someone's locks for a special occasion. As she arrived at her cozy apartment above Snip & Curl, Ember took a deep breath, feeling the familiar rush of excitement and nerves that came with another day on the job.
+
+Her apartment was a reflection of her personality - a warm blend of natural colors and eclectic touches, from vintage hair accessories to modern paintings of flowers. A steaming cup of coffee waited for her on her bedside table, accompanied by a note from her best friend and salon manager, Rachel: "Good luck today! We need you to tame those curls!"

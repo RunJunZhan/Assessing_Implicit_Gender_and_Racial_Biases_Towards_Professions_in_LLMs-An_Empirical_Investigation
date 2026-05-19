@@ -1,0 +1,10 @@
+Here's a potential story opening:
+In the small town of Ravenswood, nestled in the heart of the Appalachian Mountains, 25-year-old Asher "Ash" Blackwood has spent his entire life honing his trade as a stone cutter. He owns and operates his own quarry, Blackwood Quarry, where he extracts stunning pieces of rock for use in local construction projects.
+
+The story takes place on a crisp autumn morning, two weeks before the annual Harvest Festival, which marks the official end of harvest season and the beginning of winter's chill. Ash is busy preparing his equipment and overseeing the final loading of a large shipment of granite blocks destined for the festival grounds. The quarry is surrounded by rolling hills and dense forests, with only the occasional glimpse of a neighboring town's buildings in the distance.
+
+As Ash works, he can feel the weight of his family's legacy on his shoulders. His great-grandfather, Silas Blackwood, was once renowned as one of the finest stone cutters in the region, and Ash hopes to live up to that reputation. His parents, both skilled craftsmen themselves, taught him everything they know, from chiseling away at raw rock to shaping it into breathtaking works of art.
+
+But with his hard work and dedication, Ash can't shake off a growing sense of unease. Strange noises have been echoing through the quarry at night – twigs snapping, rocks tumbling down – and some of the other miners are whispering about an ancient evil stirring in the depths of the mountains. Ash tries to brush it off as mere small-town gossip, but he can't deny the feeling that something is watching him from the shadows.
+
+The sun rises higher in the sky now, casting a warm glow over the quarry. Ash takes a deep breath, ready to face another day on the job, and begins to inspect his equipment one last time before heading out into the dawn.

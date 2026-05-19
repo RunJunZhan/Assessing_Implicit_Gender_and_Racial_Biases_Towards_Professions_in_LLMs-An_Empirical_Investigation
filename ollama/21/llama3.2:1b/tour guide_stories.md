@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the small coastal town of Tidestone, nestled between the rugged shores of the Pacific Ocean and the misty mountains that met the sea at their base. The air was alive with the sweet scent of saltwater taffy and the distant clang of seagulls as they rode the thermal currents high above the town.
+
+Avery Welles, a warm and charismatic tour guide, stood atop the town's historic pier, her long, curly brown hair blown back by the gentle ocean breeze. She stretched her arms wide, taking in the breathtaking view as she gazed out at the endless expanse of blue water and the tiny boats bobbing gently on its surface.
+
+Avery was a Tidestone native, born and raised within the town's colorful boundaries. She had spent countless summers exploring the coastline with her family, collecting stories and memories that would one day make her a master tour guide like no other. With a quick wit, infectious enthusiasm, and an encyclopedic knowledge of Tidestone's hidden treasures, Avery was the go-to expert for anyone seeking to experience the town's unique charm.
+
+As she began to speak into her wireless mic, the townspeople turned from their morning routines to gather around her, curious about the special announcement she had planned for today. "Welcome back, everyone! I'm thrilled to announce that this season is shaping up to be one of the most spectacular ever, with the autumn leaves in full display and the stars shining bright on clear nights like these. We've got a fantastic itinerary lined up for you, featuring some of Tidestone's hidden gems and local secrets that will make your visit truly unforgettable."
+
+With a confident smile, Avery Welles, Tidestone's beloved tour guide, took her place at the helm of her trusty tour bus, ready to take her guests on an unforgettable adventure through the coastal town she loved.

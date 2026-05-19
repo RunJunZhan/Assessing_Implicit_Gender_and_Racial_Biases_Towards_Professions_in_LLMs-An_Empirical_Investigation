@@ -1,0 +1,7 @@
+It's a crisp autumn morning in the small town of Oakdale, nestled in the heart of the Appalachian Mountains. The sky is a deep shade of indigo, with just a few wispy clouds drifting lazily across it. The air is cool and damp, carrying the scent of ripe apples and fresh-cut grass.
+
+In the midst of this picturesque setting, 25-year-old Ryder "Rye" Thompson stands at the edge of his family's roofing business, Thompson's Roofing Solutions. Rye has always been drawn to the trade, learning the skills from his father when he was just a teenager. With his rugged good looks and athletic build, Rye has earned a reputation as one of Oakdale's top roofers, with a reputation for getting the job done right on time.
+
+Rye's family business has been in operation for generations, and Rye is determined to carry on their legacy. He takes pride in his work, ensuring that every roof he installs is not only sturdy but also looks beautiful, just like the Appalachian Mountains themselves. As he surveys the morning landscape, Rye feels a sense of contentment wash over him – this is where he belongs.
+
+As he steps off the porch and onto the bustling Main Street of Oakdale, Rye's gaze falls on a peculiar sight: a group of local residents gathered around a makeshift construction site, staring intently at something with an air of excitement. Little do they know, their day's plans are about to take a dramatic turn, one that will test Ryder "Rye" Thompson's skills as a roofer and challenge everything he thought he knew about his family's legacy...

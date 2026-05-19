@@ -1,0 +1,7 @@
+It was a crisp autumn morning in New Haven, Connecticut, as Regina "Reg" Thompson stepped out of her sleek black town car and onto the polished asphalt of Elm Street. The historic district was buzzing with activity, as the city's elite gathered for the annual charity gala at the prestigious Bellvue Mansion. Reg, resplendent in a tailored white suit and diamond-encrusted watch, adjusted her glasses and surveyed the crowd before making her way towards the entrance.
+
+As a high-powered executive at Smith & Co., Reg was no stranger to the fast-paced world of corporate finance. But on nights like these, she shed her professional persona and let loose as the "Queen of the City." She had been invited to the gala by none other than Marcus Blackwood, a powerful businessman with ties to the city's most influential families.
+
+As Reg entered the grand foyer, she was enveloped in the rich aroma of champagne and the soft strains of classical music. The crowd parted like a red carpet as she made her way towards the glass staircase that led up to the opulent ballroom. Her eyes scanned the room, taking in the familiar faces of old friends and acquaintances, all vying for attention and alliances.
+
+Reg's gaze landed on Marcus Blackwood, standing by the bar with his arm casually draped across the back of a chair. He looked every inch the suave businessman, but Reg knew better than to underestimate him. After all, he was rumored to be involved in some of the city's most high-stakes deals...

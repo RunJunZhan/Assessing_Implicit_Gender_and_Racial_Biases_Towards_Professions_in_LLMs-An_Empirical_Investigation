@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the bustling city of New Haven, where the smell of freshly brewed coffee wafted through the air and the sounds of car horns and chatter filled the streets. Among the throngs of people rushing to start their day, one individual stood out - 22-year-old Bellina "Bella" LaRosa, a bell hop at the luxurious Bellvue Hotel.
+
+Bellina lived in a small apartment above her family's Italian restaurant, which was famous for its homemade pasta and traditional dishes. After a quick breakfast, she would grab her backpack and head down to the hotel, where she'd spend the day polishing champagne flutes, making room service reservations, and charming guests with her warm smile.
+
+As Bella made her way to the lobby, she checked her watch for what felt like the hundredth time that morning. She had a busy shift ahead of her, but she was looking forward to it - it was going to be one of those days where everything just clicked, and she got to wear her favorite bellhop uniform. She slipped on her crisp white shirt, a navy blue blazer, and a pair of worn jeans, and tied her curly brown hair back into a ponytail.
+
+The Bellvue Hotel was a grand structure, with intricate marble details and soaring ceilings that seemed to touch the sky. Its elegant lobby was always bustling with activity, but Bella knew it like the back of her hand - she'd been working here for three years, and she could navigate its winding corridors in her sleep. As she made her way down to the staff floor, she greeted the other bellhops and waiters with a warm "Ciao!" before disappearing into the sea of faces that swirled around her.
+
+Little did Bella know, today was going to be just like any other - until she received an unexpected phone call that would change everything.

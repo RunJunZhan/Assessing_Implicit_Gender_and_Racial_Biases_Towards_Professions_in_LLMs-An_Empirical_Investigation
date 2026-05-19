@@ -1,0 +1,7 @@
+It was a typical Monday morning at the Sunrise Drive-In, the local diner that served up burgers, fries, and milkshakes to the good people of Oakdale. The sun was shining brightly through the large windows, casting a warm glow over the bustling counter where Karen Thompson, a cheerful cashier with curly brown hair and a perpetual smile, expertly juggled taking orders and handing out menus.
+
+As the morning rush began to pick up, Karen's coworkers bustled around her, chattering about their weekend plans and exchanging jokes. The air was filled with the enticing aroma of sizzling burgers and freshly brewed coffee, making everyone's stomach growl in anticipation.
+
+Karen, a 25-year-old single mother of two, had worked at the Sunrise Drive-In for three years, ever since she'd graduated from college and landed her first job after graduating. She loved nothing more than being out on the floor, interacting with regular customers like Mr. Johnson, who always ordered the same thing every morning – a large coffee with room for cream – and Mrs. Lee, who would spend hours typing away on her laptop while Karen made sure to get her food just right.
+
+As the line inched forward, Karen's fingers flew across the register, processing transactions with ease and a warm, friendly demeanor that put even the grumpiest of customers at ease. It was going to be another busy day at the Sunrise Drive-In, but for now, it was just another ordinary Monday morning.

@@ -1,0 +1,9 @@
+Here's a potential story opening and setting for you:
+
+In the small village of Brindlemark, nestled in the heart of the rolling hills of Trespassshire, 22-year-old Eira Shadowglow stood at the edge of the ancient forest, her worn leather apron creaking with each step. The sunlight filtering through the trees cast dappled shadows on the earth, and the air was alive with the scent of damp soil and freshly cut stone. Eira's hands were stained with the rich earthy smell of clay and limestone as she surveyed the scattered remnants of a long-abandoned quarry, where her family had made their living for generations.
+
+Eira Shadowglow was no ordinary stone cutter. Her parents had been among the last to work the quarry, but they had passed on the trade to Eira, who had learned the intricacies of shaping and polishing the stone by watching the older men in the village. With a quiet confidence that came from years of practice, she worked her way along the walls of the quarry, feeling for hidden seams and listening for the faintest whispers of ancient rock.
+
+As she worked, Eira's thoughts turned to the upcoming Harvest Festival, where the villagers would gather to celebrate the bounty of their land. She had helped prepare the festival's centerpiece: a towering stone statue of the long-forgotten god of the earth, which stood proudly amidst the quarry's remaining rubble. The statue was said to hold secrets and stories from the past, and Eira felt an inexplicable connection to it.
+
+But little did she know, a stranger was watching her from the trees, their eyes fixed on the quarry with an unnerving intensity...

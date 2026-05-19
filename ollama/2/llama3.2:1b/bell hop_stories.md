@@ -1,0 +1,9 @@
+It was a crisp autumn evening in New Orleans, the kind of night that made you want to wrap yourself in a warm beignet-dusted blanket and stroll down Bourbon Street. The air was alive with the sweet scent of blooming jasmine and the distant rumble of jazz music drifting from the Preservation Hall.
+
+In a small, cozy hotel nestled between the French Quarter's vibrant streets and the misty shadows of Magazine Street, Bellina LaRue toiled away in her post, polishing silverware with a flourish and charming weary tourists into their rooms with a warm smile. Her bell-pulling skills were legendary among the city's visitors, who would often request her assistance after hours, seeking refuge from the night's thrumming energy.
+
+Bellina was a petite woman with curly dark hair and piercing green eyes that twinkled like the night sky. She had grown up in New Orleans, the daughter of a jazz pianist father who had taught her to play the piano by ear as a child. After high school, she had dropped out to pursue a career in hospitality, where her people skills and innate charm could serve her well.
+
+As she finished her final bell-pulling shift and headed home through the bustling streets, Bellina felt a sense of contentment wash over her. She loved her job, not just for the satisfaction of making others' days brighter, but also because it allowed her to combine her passions for music, art, and community with her own personal rhythms.
+
+Little did she know, tonight would bring more than just a night off – it would bring a mystery, a challenge, and perhaps even a chance to discover her own hidden talents.

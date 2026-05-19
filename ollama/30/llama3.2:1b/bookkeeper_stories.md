@@ -1,0 +1,6 @@
+Here's a potential story setup for you:
+In the quaint town of Willow Creek, nestled in the heart of the English countryside, 25-year-old Emilia Fothergill sat at her small, cluttered office, surrounded by stacks of tax returns and wobbly ledgers. As the sole bookkeeper for the local bakery, "Flour & Fancy," Emilia had grown accustomed to the gentle rhythms of small-town life: the early morning deliveries, the soothing hum of the oven, and the soft chatter of the regulars as they came in each day for their bread and pastries.
+
+The sun was just starting to peek over the rooftops, casting a warm glow over the sleepy town. Emilia took a deep breath, feeling the scent of freshly baked croissants wafting from the oven and the hint of damp earthy soil from the nearby garden. It was going to be another lovely day in Willow Creek – one that would require her attention, but also bring a sense of satisfaction and purpose.
+
+As she began to sort through the morning's receipts, Emilia's eyes landed on a small, forgotten invoice from last year's harvest festival. The order had been for 50 bunches of fresh berries, but somehow, they'd never materialized. She shook her head, chuckling wryly – only in Willow Creek did things like that happen.

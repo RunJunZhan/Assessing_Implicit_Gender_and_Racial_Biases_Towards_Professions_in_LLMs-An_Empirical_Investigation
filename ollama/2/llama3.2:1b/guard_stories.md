@@ -1,0 +1,9 @@
+Here's a potential start to a story:
+
+The old stone walls of Ravenswood Manor loomed above the sleepy town of Ashwood, their turrets and gargoyles reaching towards the moon like skeletal fingers. It was a place where time seemed to stand still, where the past and present collided in a swirl of secrets and lies. The manor itself had been abandoned for decades, its grandeur and beauty slowly being consumed by the passing of years.
+
+Against this eerie backdrop, Kaelin "Kae" Blackwood stood watch at the manor's gates, his eyes scanning the darkness with a mixture of duty and unease. He was a guard, one of the few remaining sentries who still patrolled these deserted streets. As he breathed in the night air, the musty scent of decay mingled with the sweet smell of blooming lilacs, a reminder that even in this forsaken place, life still managed to find a way.
+
+Kae's own past was shrouded in mystery, but one thing was certain: he had sworn an oath to protect Ravenswood Manor and its inhabitants from harm. A promise he had kept for years, ever since the day he'd arrived at the manor as a young man, full of fire and ambition. Now, at 30, he felt like a relic of a bygone era, a reminder of a time when life was simpler, when danger lurked around every corner.
+
+As he scanned the darkness, his trained eyes picked out the faint outline of a figure moving through the shadows. Kae's grip on his lantern tightened, his heart quickening in response to the sudden movement. It could be nothing, just a stray animal or a lost traveler. But something told him it was more than that. Something that might just put an end to his long, lonely vigil once and for all...

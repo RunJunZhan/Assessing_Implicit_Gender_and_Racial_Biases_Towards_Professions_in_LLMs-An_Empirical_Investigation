@@ -1,0 +1,7 @@
+It's a crisp autumn morning in the small town of Raven's Peak, nestled at the edge of a dense forest. The air is alive with the sweet scent of ripe apples and the distant tang of smoke from the local quarry, where the town's primary source of livelihood came under threat. This was Ember Wellesley's hometown, and she had spent her entire life working as a stone cutter, chiseling away at the rough stones that formed the foundation of Raven's Peak's crumbling buildings.
+
+Ember stood on the dusty porch of her family's small cottage, surveying the chaos before her. A group of townsfolk, led by the town mayor, were gathered in front of the quarry, their faces grim with worry and determination. The once-thriving industry was on the brink of collapse, thanks to a new, high-tech quarry that had sprung up just outside of town.
+
+As Ember watched, a young man emerged from the crowd, his eyes fixed intently on her. He was dressed in worn leather armor and carried a sturdy wooden pickaxe at his side. His name was Jaxon "Blackjack" McCord, a former miner who had grown disillusioned with the new quarry's methods.
+
+Jaxon approached Ember's cottage, his stride confident but laced with a hint of uncertainty. "Ember Wellesley?" he asked, his voice low and smooth, like polished stone. "I've been looking for you."

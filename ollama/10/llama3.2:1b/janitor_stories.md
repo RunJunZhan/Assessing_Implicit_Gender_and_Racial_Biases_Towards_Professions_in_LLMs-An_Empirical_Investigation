@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the leaves on the trees seemed to dance in the gentle breeze as they rustled with the scent of decay. The sun cast its golden rays upon the worn pavement, illuminating the dimly lit alleyways and forgotten corners that few residents ever set foot into.
+
+At the heart of it all was 25-year-old Jesse Thompson, a janitor at the local high school where he toiled away under the watchful eyes of the stern principal, Mrs. Jenkins. With his worn denim overalls and faded red t-shirt, Jesse blended in with the drab surroundings, his eyes fixed on the never-ending task of keeping the institution's floors clean and organized.
+
+As Jesse made his way through the deserted hallways, the faint hum of a radio coming from the principal's office signaled that another day of monotony had begun. The fluorescent lights overhead cast an eerie glow over the rows of lockers, where students were already filing in for their first-period classes, unaware of the unseen battles Jesse waged on their behalf – battles to keep the school's dirty secrets hidden and its dusty surfaces spotless.
+
+The year was 1995, a time when life seemed simple: go to high school, attend classes, play sports, and perhaps stumble upon a chance encounter that would change everything. Little did anyone know, Jesse's world about to take a dramatic turn, one that would lead him down a path of self-discovery, rebellion, and an unexpected quest for justice.

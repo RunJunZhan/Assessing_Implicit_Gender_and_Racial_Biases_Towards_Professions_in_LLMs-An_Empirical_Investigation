@@ -1,0 +1,5 @@
+It was a chilly autumn morning in the small town of Ashwood, nestled in the heart of the Pacific Northwest. The misty veil that shrouded the streets was a familiar sight to Dr. Aurora "Rory" Wilder, a renowned forensic psychologist with a specialization in trauma and behavioral analysis. Her office, situated on the second floor of the local hospital's psychiatric ward, overlooked the deserted hallways below, where the sounds of murmured conversations and clinking medical equipment provided a constant background hum.
+
+As Rory sipped her lukewarm coffee, she gazed out at the rain-soaked streets, the grey clouds hanging low and foreboding. It was days like this that reminded her why she had left the hustle and bustle of city life behind to dedicate herself to the quiet, introspective world of forensic psychology.
+
+Rory's thoughts were interrupted by the soft knock on her door, signaling the arrival of her latest patient, a young woman named Sophia Patel, who sat nervously fidgeting in the worn leather armchair across from Rory.

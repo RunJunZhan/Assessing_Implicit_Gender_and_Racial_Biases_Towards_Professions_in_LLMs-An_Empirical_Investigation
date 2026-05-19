@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the streets were lined with old oak trees and the houses were a mix of Victorian-era mansions and cozy bungalows. The sun was just starting to rise over the horizon, casting a warm glow over the quiet neighborhood.
+
+In the midst of this peaceful scene, there stood a humble janitor's closet, tucked away on the third floor of the local high school. This was the domain of 32-year-old janitor, Jesse Thompson. Jesse had been working at the school for five years, and in that time, he had grown accustomed to the rhythms of the school day: the chatter of students, the rustle of papers, and the occasional scream of alarm as a fire drill went off.
+
+As Jesse made his way down the stairs, he cracked his knuckles and gave a satisfied nod to himself. He lived in a small apartment above the janitor's closet, with a worn couch, a refrigerator that was held together by duct tape and prayers, and a window that looked out onto the parking lot of the school.
+
+Jesse took a deep breath, feeling the cool autumn air fill his lungs as he stepped into the bright morning light. He began his rounds, sweeping up crumbs from the cafeteria floor and wiping down the tables in the staff room. It was going to be another long day, but Jesse had seen it all before.

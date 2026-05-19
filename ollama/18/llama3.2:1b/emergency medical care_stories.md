@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, nestled in the heart of the Appalachian Mountains. The sun was just starting to rise over the rolling hills, casting a warm orange glow over the quaint Main Street. The smell of freshly brewed coffee wafted from the local café, enticing the sleepy residents as they began their daily routines.
+
+Among the throngs of people rushing to start their day was 32-year-old Alexandra "Lexi" Thompson, a highly trained emergency medical technician (EMT). Lexi was a native of Willow Creek and had grown up in these very hills, learning the intricacies of rural medicine from her father, a long-time physician. She had always been drawn to the thrill of the job, where every day was different, and the sense of camaraderie with her fellow EMTs was unparalleled.
+
+As Lexi made her way down Main Street, she nodded greetings to the familiar faces, exchanging pleasantries about the weather or the weekend plans. Her bright blue scrubs were a beacon of professionalism, and her hair was tied back in a ponytail, revealing a smattering of freckles across her cheeks.
+
+Lexi's thoughts were already turning to the 9 am call at Mercy General Hospital, where she would join forces with two other seasoned EMTs – Mike "The Bull" Jenkins and Emily "Doc" Patel – to tackle whatever medical emergency came their way. It was going to be a busy day in Willow Creek, and Lexi was ready for it.

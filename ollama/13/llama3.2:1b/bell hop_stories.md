@@ -1,0 +1,7 @@
+It was a crisp autumn morning in New Haven, the kind that made you want to wrap your hands around a warm cup of coffee and step outside into the crisp air. The streets were alive with the sounds of vendors calling out their daily specials, and the smell of freshly baked pastries wafted through the air, enticing passersby to stop and sample the local treats.
+
+Among the hustle and bustle was Emily Wilson, a bellhop with the prestigious Bellvue Hotel. She stood at the entrance of her station, polishing the gleaming silver railings with a dirty rag, her eyes scanning the lobby for any sign of chaos before the day's guests arrived.
+
+Emily had been working as a bellhop for three years, and she took pride in her work. She knew every nook and cranny of the hotel, from the hidden corners behind the furniture to the secret passages that led to the staff room. But on days like this, with the morning rush in full swing and the guests still clustered around their rooms, Emily's attention was focused on making sure everything ran smoothly.
+
+As she straightened up her position, a harried-looking businessman stumbled into the lobby, his briefcase clutched tightly in one hand and a look of deep frustration etched on his face. "Where's my room key?" he demanded, handing it to Emily with a curt wave.

@@ -1,0 +1,7 @@
+It's a crisp autumn morning in the small town of Ravenswood, nestled in the heart of the countryside. The sun rises over the rolling hills and fields of golden wheat, casting a warm orange glow over the bustling streets. In the midst of this picturesque setting, the Smith & Sons Meat Market stands as a stalwart institution, its wooden sign creaking gently in the morning breeze.
+
+Inside the market, the air is thick with the savory scents of cured meats and freshly ground beef. The sound of sizzling bacon and chatter fills the air as the day's customers begin to trickle in. Amidst the hustle and bustle, one figure stands out - Emrys "Hank" Thompson, a gruff but lovable butcher in his mid-40s, with a bushy white beard and a quick wit. Hank has spent decades perfecting his craft, and his meat is renowned throughout the region for its unparalleled quality.
+
+As the morning wears on, the market begins to fill with the sounds of haggling customers and the occasional cluck of a chicken from the nearby farm. The townspeople have made Smith & Sons Meat Market their go-to destination for everything from fresh produce to specialty cheeses. But amidst the bustle, Hank's thoughts are focused on one task: preparing the day's special - a mouth-watering display of slow-roasted prime rib, served with a side of au jus and crispy bread rolls.
+
+Little does Hank know, this ordinary-looking morning in Ravenswood will soon take an extraordinary turn...

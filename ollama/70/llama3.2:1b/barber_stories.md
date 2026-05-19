@@ -1,0 +1,7 @@
+It was a typical Monday morning in the small town of Willow Creek, with the sun rising over the sleepy streets and the sound of birds chirping outside the windows of the local barbershop. The sign above the door read "Baldwin's Barbers" in bold letters, and the smell of freshly cut hair wafted out into the morning air.
+
+Inside, Baldwin "Baldy" Thompson was busy prepping for another day of trimming beards and styling hair. He had been running the shop since he was a young man, learning the trade from his father before him. As he expertly clipped the locks of a customer's receding hairline, he couldn't help but think about how much the town had changed since he first opened up shop.
+
+The past few years had seen an influx of new businesses and residents, and Baldwin had been struggling to keep up with the demand for his services. But he remained dedicated to his craft, taking pride in every haircut he gave out. He loved nothing more than seeing a customer leave the shop feeling confident and refreshed, like they'd just stepped off the plane at LaGuardia.
+
+Just as Baldwin was finishing up a particularly tricky fade, his phone rang. It was Emily Wilson, one of his regular clients from across town. "Hey, Baldy, I need you to cut my son's hair for him," she said, her voice cheerful on the other end of the line. "He's been wanting a new look for months."

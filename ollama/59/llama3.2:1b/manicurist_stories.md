@@ -1,0 +1,11 @@
+It was a crisp autumn morning in the quaint town of Willow Creek, nestled in the heart of the Pacific Northwest. The sun was just starting to rise over the misty hills, casting a warm golden light over the streets and homes. In a small, cozy salon on Main Street, a flurry of activity began as the first clients started trickling in for their weekly manicures.
+
+Among them was Emily Rose Chen, a 28-year-old Chinese-American manicurist with a passion for beauty and a knack for making everyone feel like royalty. With her dark hair tied back in a sleek ponytail and a bright smile that could light up a room, Emily was the epitome of cool and competent behind the chair. She had inherited her love of nail care from her mother, who had opened the salon when Emily was just a little girl.
+
+As the morning rush subsided and the salon grew quieter, Emily took a moment to review her schedule for the day. She had a few regulars lined up, including Mrs. Patel, who required a special gel polish application every week; Jack, a tech entrepreneur who needed his nails done in a hurry before he headed out to a meeting; and finally, there was Sarah, a young professional who had been coming to Emily's salon for months now and seemed to be getting more and more beautiful with each visit.
+
+But as Emily was about to start her first client of the day - a shy-looking young woman named Rachel - she couldn't shake off the feeling that something was off. It started when Mrs. Patel called in early, complaining of a severe stomach cramp and an upset stomach. Emily tried to reassure her that it would be fine, but as she began to work on Rachel's nails, she noticed that the young woman seemed...different.
+
+Rachel's eyes were sunken, her skin was pale, and her movements were stiff and unnatural. As Emily worked, she felt a growing sense of unease - what was wrong with this girl? And then, just as she was finishing up Rachel's manicure, the door to the salon burst open and a frantic-looking young man rushed in, knocking over a chair in the process.
+
+"Emily, I need your help!" he exclaimed, out of breath. "My sister is in trouble. She's been missing for hours, and we think something terrible has happened to her."

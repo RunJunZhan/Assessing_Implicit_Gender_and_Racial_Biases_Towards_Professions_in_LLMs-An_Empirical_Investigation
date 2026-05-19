@@ -1,0 +1,9 @@
+It was a drizzly autumn evening in the city of New Haven, where the gray skies seemed to match the mood of its residents. The year was 1922, and the town was abuzz with rumors of a string of high-society burglaries that had left several wealthy families reeling. Amidst this chaos, a lone figure emerged from the rain-soaked streets, his eyes scanning the crowded sidewalks for any sign of trouble.
+
+Meet Cassius "Cash" Blackwood, a private detective with a reputation for being one of the best in the business. With his sharp jawline and piercing blue eyes, Cash was a man who commanded respect without ever seeking it. His dark hair was slicked back, revealing a prominent widow's peak that gave him an air of mystery.
+
+Cash had been hired by the wealthy socialite, Vivian LaRue, whose family's mansion on Elm Street was the latest target of the burglaries. As he walked towards the grand estate, the sound of jazz music drifted from the open window, mingling with the distant rumble of a city bus. The smell of cigarette smoke and cheap perfume wafted through the air, adding to the intoxicating scent of possibility.
+
+Cash pushed open the creaky front door, revealing a foyer that seemed frozen in time. Cobwebs clung to the chandelier, while a faded portrait of Vivian's late father hung crookedly on the wall. The once-majestic hall was now a labyrinthine maze of dark corridors and dimly lit rooms, where shadows danced like restless spirits.
+
+With his eyes scanning the space, Cash knew he had only a short window to solve this mystery before the next burglary took place. He was ready for whatever lay ahead, his mind sharpened by years of dealing with the city's darkest corners. Little did he know, this case would lead him down a path of danger, deceit, and secrets that would test his skills as a detective like never before.

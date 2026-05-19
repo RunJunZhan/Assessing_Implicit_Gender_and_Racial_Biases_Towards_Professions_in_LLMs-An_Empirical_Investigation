@@ -1,0 +1,7 @@
+It was a crisp autumn evening in the bustling city of New Haven, where the smell of freshly brewed coffee and roasting nuts wafted through the air from the local cafes. Amidst the hustle and bustle, 22-year-old waitress, Emilia "Mia" Thompson, moved with ease between tables, her bright pink apron a stark contrast to the drab grayness of the city's underbelly. Her dark hair was pulled back into a tight ponytail, revealing a smattering of freckles across her cheeks that seemed to darken in intensity as she worked.
+
+Mia had grown up on these streets, the daughter of a single mother who had worked multiple jobs to make ends meet. She had learned the ins and outs of the service industry from a young age, and had developed a keen sense of people-watching and multitasking skills that served her well behind the counter at local diners and cafes.
+
+As she poured a steaming cup of coffee for a group of rowdy college students, Mia's eyes scanned the room with a practiced intensity, taking in the eclectic mix of regulars and newcomers. She had a reputation among the locals for being one of the most reliable and friendly servers in town, and she worked hard to maintain that image, even as the long hours and grueling pace took their toll.
+
+Little did Mia know, tonight was going to be different. Tonight, she would receive an unexpected phone call that would change everything.

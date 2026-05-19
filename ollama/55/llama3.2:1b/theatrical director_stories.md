@@ -1,0 +1,4 @@
+Here's a potential story opening for you:
+In the sweltering summer heat of New York City, Alexandra "Lexi" Thompson stood on the balcony of her Upper West Side apartment, gazing out at the glittering lights of Broadway as if she could will them to change their fortunes. As a renowned theatrical director, Lexi had spent years honing her craft in the city's vibrant theater scene, but despite her success, she felt an unshakeable sense of restlessness. It was a feeling that had become all too familiar as of late – after a disastrous production of Hamlet at the off-Broadway Red Lion Theatre, Lexi had been approached by the enigmatic and reclusive owner of the theater, Mr. Blackwood, with a proposal that would change her life forever.
+
+The story is set in New York City, specifically on Broadway, which is home to many theaters and playhouses.

@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the small town of Ravenswood, nestled in the heart of the Appalachian Mountains. The sun was just starting to rise over the horizon, casting a warm golden light over the quaint streets and homes. The smell of freshly brewed coffee wafted through the air from the local café, enticing the sleepy residents as they began their day.
+
+Among them was 35-year-old firefighter Jack "Hawk" Hawkins, whose rugged exterior and piercing blue eyes belied a heart of gold. Hawk had grown up in Ravenswood his entire life, and he knew every nook and cranny of this charming town. He had spent countless hours exploring the woods, hunting with his family, and playing baseball on the city's diamond.
+
+As a member of the Ravenswood Fire Department, Hawk was dedicated to protecting his community from the dangers that lurked in every corner of the world. He stood at 6'2" with a muscular build, honed from years of physical labor and rigorous training. His short, dark hair was always perfectly messy, and his sharp jawline was accentuated by a small scar above his left eyebrow, which he got on a particularly rough training exercise.
+
+Hawk's phone buzzed as he stepped out of the fire station, where he had spent the night preparing for another grueling shift. He answered it with a curt "Ravenswood Fire," and a voice on the other end asked if he was available to respond to a 2-alarm kitchen fire at a local restaurant.
+
+"Jack, we need you in there ASAP," the dispatcher said, her voice tight with urgency. Hawk nodded, already knowing that this would be one of those nights where everything came together just right.

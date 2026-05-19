@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the small town of Oakdale, nestled in the heart of rural Arkansas. The sun was just starting to rise over the rolling hills and farmland, casting a warm golden light over the quaint Main Street. In the midst of this peaceful scene, a sense of anticipation hung in the air, as the annual Harvest Festival was about to begin.
+
+At the local machine shop, aptly named "Buck's Heavy Equipment," 27-year-old Jake "Mac" McCord was already hard at work preparing for the big day. Mac had been working as a heavy equipment operator for Buck's since he was a teenager, and he took pride in keeping their fleet of bulldozers, excavators, and cranes running smoothly.
+
+As the shop door swung open, Mac couldn't help but smile as he spotted his best friend and coworker, Ryder "Raven" Jackson, walking in. Raven was a few years younger than Mac, with a rugged build and a quick wit that always got them out of sticky situations. Together, they had grown up working on the same farms and ranches around Oakdale, and their friendship was built on a foundation of trust, respect, and a love for all things heavy equipment.
+
+The sound of sizzling bacon and fresh-baked donuts wafted through the shop, mingling with the hum of machinery as Mac and Raven began to prep for the festival. The smell of diesel fuel and freshly cut hay filled the air, transporting them back to countless summer days spent working in the fields alongside their families.
+
+As they worked, Mac's phone buzzed with a text from Buck: "Hey boys, I'm thinking of taking over the Ferris wheel tonight during the fireworks display. What do you say we make it a joint effort? We can get the whole crew to help out."

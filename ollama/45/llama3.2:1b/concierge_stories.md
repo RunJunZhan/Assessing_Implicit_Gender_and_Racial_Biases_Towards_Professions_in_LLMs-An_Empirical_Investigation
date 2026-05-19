@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the heart of New York City's Chinatown, the kind of day that made you want to wrap up warm and snuggle into a good book at home. But for 25-year-old Constance Wong, it was just another chaotic day as she began her shift as the concierge at the historic Golden Dragon Hotel.
+
+The hotel, with its ornate facade and winding staircases, had been in Constance's family for generations. Her great-grandfather had started it all, importing the first Chinese immigrants to New York City and building a reputation for warm hospitality and exceptional service. Now, as Constance made her way through the bustling lobby, she was determined to live up to her ancestors' legacy.
+
+As she swept the floor with a dustpan and broom, Constance's mind began to wander to the big meeting with the hotel's board of directors later that day. They were discussing a potential expansion into a new upscale complex in SoHo, and Constance had been tasked with convincing them that Golden Dragon was the perfect choice for the project.
+
+But as she worked, Constance couldn't shake off the feeling that something was off. The usual chatter of the guests was subdued today, and the usually bustling streets outside were eerily quiet. She glanced out the window to see a group of rowdy teenagers loitering in front of 14th Street, eyeing the hotel's entrance with a mixture of curiosity and hostility.
+
+Constance's instincts told her that something was amiss, but she pushed the feeling aside as she finished up her sweep and headed back into the lobby to start her rounds. Little did she know, this day would be marked by more than just routine tasks and paperwork – it would be a day that would test her skills, her knowledge, and her ability to connect with the people who mattered most in her life.

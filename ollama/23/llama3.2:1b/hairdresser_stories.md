@@ -1,0 +1,5 @@
+It was a warm, sunny morning in Maywood, California, as Maya Ramos stepped out of her vintage Honda Civic and onto the sidewalk outside her family's beloved hair salon, "Ramos Cuts." The smell of freshly cut hair and the sound of sizzling flat irons filled the air, instantly transporting Maya back to a childhood spent surrounded by the sights and sounds of her parents' bustling business. Her bright pink afro bobbed slightly as she stretched her arms over her head, giving a casual wave to the few patrons who had stopped to admire her latest salon-fresh look.
+
+Maya's hairdresser mom, Lupita Ramos, was already up and at 'em, expertly teasing out a particularly stubborn curl from one of their regular clients' locks. Maya smiled as she took in the colorful array of hair clips, barrettes, and headbands scattered about the salon floor, each one telling a story of its own. This was more than just a place to get a haircut – it was a warm hug from her family's hearts.
+
+As Maya began to plan out her day, her phone buzzed with an incoming text from her best friend, Jasmine "Jazz" Patel: "Hey girl! What's the plan for today? Want to grab brunch and catch up?"

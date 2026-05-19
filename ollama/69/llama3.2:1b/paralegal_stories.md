@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the bustling city of New Haven, where the sounds of car horns and chatter filled the air as people rushed to start their day. The sun was just beginning to peek over the rooftops, casting a warm glow over the towering skyscrapers and quaint bookstores that lined the streets.
+
+Ava Moreno, a 28-year-old paralegal with a sharp mind and quick wit, stood outside the courthouse, sipping on a cup of coffee as she checked her phone for any urgent messages from her colleagues. She had spent the better part of the night reviewing documents and preparing for today's court hearing, but now that it was finally here, Ava felt a mix of excitement and nerves coursing through her veins.
+
+As she made her way to the courthouse entrance, Ava couldn't help but think about the case before her. A high-profile tech mogul had been accused of embezzling millions from his company, and the prosecution's star witness, a young woman named Emily Chen, was set to testify on behalf of the plaintiff. Ava had been working with Emily since the beginning of the case, and she knew that Emily's testimony would be crucial in proving or disproving the mogul's guilt.
+
+Ava slipped into the crowded hallway outside the courthouse, weaving past suitcases and briefcase-wielding lawyers as she made her way to her assigned courtroom. She took a deep breath, feeling a sense of determination wash over her as she pushed open the door to the courtroom and scanned the room for any signs of trouble.

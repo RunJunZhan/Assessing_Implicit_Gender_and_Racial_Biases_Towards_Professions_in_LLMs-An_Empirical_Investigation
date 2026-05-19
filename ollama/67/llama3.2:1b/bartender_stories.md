@@ -1,0 +1,9 @@
+It was a crisp autumn evening in the small town of Willow Creek, where the streets were lined with towering oak trees and the sound of leaves crunching beneath feet was the only noise that broke the silence. The sun had long since set, casting a warm orange glow over the quaint downtown area, where the smell of freshly brewed coffee wafted from the doors of the local café.
+
+At the bar of The Red Door Tavern, bartender Emilia "Mia" Thompson polished a mug with a white towel, her bright blue eyes scanning the crowd as she expertly mixed a batch of cocktails for the evening's regulars. It was a slow night, just what she liked – a chance to relax and catch up on old times.
+
+As she worked, Mia's mind wandered back to the summer she'd spent in New Orleans, learning the ins and outs of the city's legendary cocktail scene from her uncle, a renowned bartender who had taught her everything he knew. She smiled wistfully, remembering the endless nights she'd spent exploring the French Quarter, sipping on Sazeracs and learning about the art of mixology.
+
+But for now, Mia was content to focus on the present – or at least, as present as it got in this sleepy little town. The door swung open, and a tall, dark-haired man walked in, his eyes scanning the room with a mixture of curiosity and caution. He made his way over to the bar, his long strides eating up the distance, and Mia's eyes met his as he ordered a whiskey on the rocks.
+
+As she poured the drink, their gazes locked, and for a moment, time stood still. Mia felt a flutter in her chest, a familiar sensation that never failed to make her heart skip a beat – it was as if no matter how old she got, no matter how many years had passed since she'd last seen him, he would always be the same captivating man who'd caught her eye back in college.

@@ -1,0 +1,5 @@
+It was a crisp autumn morning in the small town of Willow Creek, nestled in the heart of rural Oregon. The sun was just starting to rise over the lush green hills, casting a warm orange glow over the quaint streets and homes. Dr. Avery Wellesley, a renowned counseling psychologist with a kind smile and an infectious laugh, sipped her coffee as she stood outside her cozy office building, nestled between a bakery and a bookstore.
+
+The wooden sign above the door creaked in the gentle breeze, reading "Wellesley Counseling Services" in elegant script. Avery's warm smile gleamed as she gazed out at the sleepy town, feeling grateful for another day to help those in need. She had spent the previous evening working with a group of troubled youth at the local community center, and today was just another busy morning ahead.
+
+As she unlocked her office door, the sound of chirping birds and rustling leaves filled the air, creating a soothing background hum that Avery found calming. She took a deep breath, feeling the scent of freshly brewed coffee waft through the room, and stepped inside, ready to face another day of helping her clients find their way.

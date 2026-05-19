@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Oakdale, nestled in the heart of rural Pennsylvania. The sky was a deep shade of indigo, with just a hint of orange as the sun slowly rose above the horizon. The air was cool and damp, carrying the sweet scent of ripe apples from the nearby orchards.
+
+Ava Morales stood at the edge of town, her dark hair tied back in a ponytail, her worn jeans and rugged boots scuffing against the pavement. She gazed out at the vast expanse of farmland stretching before her, the rolling hills dotted with rusty farm equipment and the occasional barn. This was her domain – heavy equipment operator for Oakdale Tractor Co., and owner of her own small mechanics shop on the outskirts of town.
+
+Ava's phone buzzed in her pocket, breaking the spell of the peaceful morning. She pulled it out to see a text from her boss, Jack Harris: "Meet me at the depot at 8 am sharp. We've got a big job comin' in – a new transmission system for one of our customers. Don't be late!"
+
+Ava nodded to herself, tucked her phone away, and headed back into town, the morning light casting long shadows behind her as she walked towards the old truck stop where Jack's office was located.

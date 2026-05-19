@@ -1,0 +1,7 @@
+It was a typical Monday morning at Smith & Co., a busy marketing firm nestled in the heart of downtown Manhattan. The sun had barely risen over the towering skyscrapers, casting a warm glow over the bustling streets. Inside the office, employees began to trickle in, sipping coffee and exchanging early morning greetings.
+
+Ava Moreno, a 28-year-old secretary with a sharp mind and an even sharper wit, stood at her desk, sipping her own coffee and going through the day's schedule one last time. As she smoothed out a stray thread on her crisp white blouse, her eyes scanned the room for any signs of chaos that only she could see.
+
+The firm was known for its fast-paced environment and constant stream of clients and deadlines, but Ava had learned to thrive in this world. She had worked her way up from a junior secretary to senior administrative assistant, earning the respect and admiration of her colleagues.
+
+As she finished checking the mail and responding to any urgent emails, Ava's attention was drawn to a commotion at the reception desk. Her boss, Mr. Johnson, was standing by the door, looking frazzled and flustered. "Ava, I need you," he said, his voice low and urgent. "I've got a meeting with a potential client in an hour. Can you please get ready for me?"

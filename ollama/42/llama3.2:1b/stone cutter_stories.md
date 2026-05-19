@@ -1,0 +1,8 @@
+Here's a potential story opening:
+In the small town of Ravenshire, nestled in the heart of the rugged mountains, 25-year-old Kaelin "Kae" Blackwood had grown up surrounded by the very stones that would one day become his livelihood. He lived and breathed stonecutting, the ancient art of shaping rough granite into beautiful works of art. With a sharp knife in hand and a practiced eye for detail, Kae had honed his craft in the local quarry, learning the secrets of the trade from his father before him.
+
+The sun was just starting to rise over Ravenshire as Kae emerged from the quarry, the crisp morning air invigorating his senses. He wore a worn leather apron over his tunic, adorned with intricate carvings that reflected his family's history in the stonecutting business. As he walked through the town, the sound of hammers ringing against anvil echoed through the streets, mingling with the chatter of locals preparing for another busy day.
+
+The town square was bustling with activity, as villagers gathered at the local bakery to discuss the latest news and gossip over steaming cups of coffee. Kae's gaze wandered to the town hall, where a group of townsfolk were gathered around a large map of the surrounding mountains, discussing plans to reopen the long-abandoned Ironhaven Mine.
+
+Little did Kae know, his life was about to take a dramatic turn, one that would challenge everything he thought he knew about himself and his place in the world.

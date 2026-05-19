@@ -1,0 +1,7 @@
+It was a crisp autumn evening in the bustling coastal town of Ravenswood Bay, where the sun had just set behind the waves and painted the sky with hues of pink and orange. The air was alive with the sweet scent of freshly brewed coffee and the sound of clinking glasses as the patrons gathered at the local watering hole, "The Siren's Song".
+
+Among the crowd was 25-year-old Ember Wellesley, a bartender with a wild mane of curly brown hair and piercing green eyes that seemed to see right through you. She had spent her entire life in Ravenswood Bay, learning the ins and outs of mixology from her father, a legendary bartender who had owned "The Siren's Song" for over 20 years.
+
+As Ember polished a glass with a white towel, she couldn't help but feel a sense of pride and ownership over the bar. She knew every nook and cranny, every hidden corner and every patron by name. But tonight was different. Tonight, a stranger had walked in, a man with piercing blue eyes and chiseled features that seemed to have been carved from granite.
+
+The stranger's arrival sent ripples through the crowd, drawing Ember's attention like a magnet. She felt an inexplicable pull towards him, as if he were a long-lost friend she couldn't quite remember. Little did she know, this chance encounter would set off a chain of events that would change everything in Ravenswood Bay forever.

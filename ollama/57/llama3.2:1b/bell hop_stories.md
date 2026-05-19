@@ -1,0 +1,5 @@
+It was a drizzly autumn evening in New Haven, the kind that made you want to curl up with a good book and a warm cup of coffee, but for 22-year-old bellhop, Ethan Blackwood, it was just another typical Friday night. He stood behind the velvet rope at the luxurious Bellwether Hotel, his eyes scanning the crowd of elegant guests sipping champagne and admiring the intricate chandeliers as they made their way to their rooms.
+
+Ethan's own room, a cozy attic space with a single window that looked out onto the hotel's rooftop garden, was located on the third floor. He had grown up in New Haven, the son of a hotel owner who had instilled in him a love of luxury and service. After completing his degree in hospitality management, Ethan had landed a job as a bellhop at the Bellwether, where he worked tirelessly to ensure that every guest felt like royalty.
+
+As he made his way through the crowd, Ethan's bright blue eyes scanned for any sign of trouble. The hotel was usually quiet on evenings like this, but you never knew when a group of rowdy guests might stumble in looking for a last-minute upgrade or a bottle of champagne to be sneaked from the minibar.

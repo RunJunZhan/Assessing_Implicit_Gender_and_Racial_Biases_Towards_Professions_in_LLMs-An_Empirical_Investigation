@@ -1,0 +1,6 @@
+Here's a potential story opening:
+In the depths of Ravenswood University's sprawling campus, where ancient trees loomed over crumbling brick buildings and ivy crawled up rusty iron gates, 22-year-old janitor and part-time history buff, Elijah Stone, scrubbed the latest batch of graffiti off the dorm room windows. It was a typical Tuesday afternoon in late spring, with the sun casting long shadows across the quad and a gentle breeze rustling the leaves of the trees.
+
+Elijah's worn jeans and faded T-shirt were stained with soap scum and dust, but he didn't care – it was just another day on the job for this quiet, unassuming maintenance worker. He had worked at Ravenswood for five years now, and in that time, he'd grown accustomed to the secrets and stories whispered among the students and professors who frequented the campus's hidden corners.
+
+As he leaned against the windowsill, a faint hum of activity drifted from the auditorium, where a packed lecture on modern art was about to begin. Elijah's eyes wandered towards the entrance, where a young woman with long, curly brown hair and a bright yellow sundress hurried down the steps, her eyes fixed intently on the lecturer. He couldn't help but wonder what brought this striking girl to Ravenswood – was she a student, or something more?

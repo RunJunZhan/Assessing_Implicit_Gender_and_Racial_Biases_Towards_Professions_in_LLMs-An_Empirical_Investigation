@@ -1,0 +1,8 @@
+Here's a potential story opening:
+The sun was just starting to rise over the crumbling stones of Ravenswood Manor, casting a golden glow over the overgrown gardens and neglected lawns. It was a chilly autumn morning in the year 1922, and groundskeeper Elijah Stonebrook stirred to life as he began his daily routine. With a rugged hand and weathered eyes, Elijah had spent nigh on 20 years tending to the crumbling estate that had been in his family for generations.
+
+As he made his way through the dusty halls, the creaking of the wooden floorboards beneath his feet echoed through the empty rooms, like a reminder of the life that once thrived within these walls. Elijah's thoughts were consumed by the task at hand: repairing the broken fountain in the grand courtyard, and coaxing life back into the wilting flowers that lined its base.
+
+Elijah had always taken pride in his work, but he knew that Ravenswood Manor was more than just a place to be tended – it was a link to the past, a reminder of the lives that had once flourished within these stone walls. And as he stepped out into the crisp morning air, he couldn't help but feel a sense of responsibility to preserve this relic of history for generations to come.
+
+The sound of birds chirping in the trees and the distant rumble of the engine plying the roads outside signaled that Elijah's daily routine was about to begin – and it would be a long day of hard work ahead, with the manor's secrets waiting to be uncovered.

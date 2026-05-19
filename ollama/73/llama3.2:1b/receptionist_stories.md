@@ -1,0 +1,7 @@
+It was a typical Monday morning at Oakwood Hospital, with the sound of coffee brewing in the break room and the murmur of hushed conversations coming from the offices on the second floor. Receptionist Emily Maynard adjusted her glasses for what felt like the hundredth time, smoothing out the wrinkles that had formed on the lenses as she gazed out the window at the snow-covered streets of downtown.
+
+The hospital was a bustling hub of activity, with doctors and nurses rushing to and fro between shifts. Emily's job as the primary point of contact for patients and visitors made her a familiar face around the hospital, but it also meant she often found herself in the midst of high-stakes medical emergencies and delicate conversations with anxious families.
+
+As she made her way back to her desk, Emily's mind began to wander to the long list of tasks that lay ahead. She had to process the morning's paperwork, update the patient records, and coordinate a meeting with the surgical team to discuss a new medication regimen for one of the patients on the ICU floor. It was going to be a busy day, but Emily was ready – she had spent countless hours in this role and knew every nook and cranny of Oakwood Hospital like the back of her hand.
+
+Just as she was about to head out the door to grab a cup of coffee, there was a sudden knock at the door. It was Dr. Patel, the hospital's chief of medicine, leaning against the wall with an expectant look on his face. "Emily, can I talk to you for a minute?" he asked, his voice low and urgent.

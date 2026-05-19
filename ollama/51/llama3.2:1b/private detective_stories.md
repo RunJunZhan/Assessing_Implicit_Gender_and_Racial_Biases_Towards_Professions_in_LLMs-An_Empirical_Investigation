@@ -1,0 +1,7 @@
+It was a drizzly autumn evening in the bustling city of New Haven, the kind that made you want to curl up with a good book and a warm cup of coffee while watching the raindrops slide down the windowpane. But for private investigator Elijah Stone, there was no such luxury. He stood outside the rundown office building where he worked, his eyes scanning the dimly lit parking lot as if searching for a ghost.
+
+Elijah was a man in his late forties, with a rugged jawline and piercing green eyes that seemed to bore into those he met. His dark hair was flecked with gray, a testament to the years of solving cases that had left their mark on him. A tall, lean figure in his worn leather trench coat, Elijah stood out in a sea of rain-soaked suits and slicked-back hair.
+
+As he pushed open the creaky door, a bell above it let out a tired clang, and Elijah was greeted by the musty smell of old newspapers and the faint tang of cigarette smoke. The office was small, with a single desk behind which sat a cluttered mess of files, pens, and empty coffee cups. A faded sign above the desk read "Elijah Stone, Private Investigator" in crooked letters.
+
+The rain seemed to be getting heavier by the minute, drumming a rhythmic beat on the roof above. Elijah's eyes scanned the room, taking in the scattered papers, the faint glow of a single flashlight, and the eerie silence that filled the air. It was as if the city itself was holding its breath, waiting for something – or someone – to emerge from the shadows.

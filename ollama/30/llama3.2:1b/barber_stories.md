@@ -1,0 +1,5 @@
+It was a drizzly afternoon in the small town of Willow Creek, where the scent of freshly brewed coffee wafted through the streets from the local café. Inside, 25-year-old barber, Jasper "Jazz" Thompson, stood at his station, his eyes scanning the neatly arranged rows of hair clippers and scissors on display. The sound of gentle chatter and the soft hum of a CD player provided a soothing background melody as Jazz worked his magic on a client's unruly locks.
+
+The town was bustling with activity, but Jazz was in his element. He had grown up here, learned the trade from his father, and loved nothing more than making people look and feel their best. As he expertly trimmed a particularly recalcitrant strand, a woman walked into the shop, shaking the rain off her umbrella and surveying the room with a warm smile.
+
+"Hi there! I'm looking for someone to cut my mom's hair," she said, her voice husky from years of singing in local choirs. "She wants it done today."

@@ -1,0 +1,5 @@
+It was a typical Monday morning at Springdale High School, with the sounds of chatter and lockers slamming echoing through the halls. The sun was shining down on the campus, casting a warm glow over the bustling student body. Amidst the chaos, one figure stood out - 17-year-old Ethan Taylor, a janitor by day and a quiet loner by night.
+
+Ethan had always been content with his mundane routine, but lately, he'd begun to feel a growing sense of restlessness. As he made his way through the crowded hallways, he couldn't shake the feeling that there was more to life than the monotony of cleaning up after others. His worn jeans and faded hoodie seemed to whisper secrets in the wind, as if they too knew a secret or two about the emptiness that lay beneath Ethan's reserved exterior.
+
+As he pushed open the door to his favorite janitor's closet, a bell above it let out a familiar clang, signaling the start of another chaotic day at Springdale High. Ethan smiled wryly to himself, knowing that amidst the chaos, there was always room for one more person - or in this case, one less person. Little did he know, today would be different.

@@ -1,0 +1,5 @@
+It's a crisp autumn morning in the small town of Ravenswood, nestled deep in the heart of the Appalachian Mountains. The air is cool and misty, with a hint of wood smoke carried on the breeze from the local tavern. The full name of our protagonist, Guard James "Hawk" Hawkins, is etched into his worn leather jacket, adorned with the emblem of the Ravenswood County Sheriff's Department.
+
+Guard James "Hawk" Hawkins stands at attention outside the imposing stone walls of Ravenswood State Penitentiary, gazing out over the sprawling complex of crumbling brick and steel. His piercing blue eyes scan the grounds, taking in the rows of rusted gates, the watchtowers that pierce the sky like skeletal fingers, and the distant hum of the prison's life support systems.
+
+As he waits for his shift to begin, Hawk feels a familiar sense of unease settle over him. He's been a guard at Ravenswood Penitentiary for nigh on 10 years now, and he knows every inch of these walls. But tonight, something feels different. A sense of foreboding hangs in the air like a noose, making Hawk's skin prickle with unease. Little does he know, his night is about to take an unexpected turn...

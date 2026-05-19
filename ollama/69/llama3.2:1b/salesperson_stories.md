@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the bustling city of New Haven, where the sounds of car horns and chatter filled the air. The sun was just starting to rise over the towering skyscrapers, casting a golden glow over the crowded streets. Amidst the chaos, 28-year-old salesperson, Alexandra "Lexi" Thompson, made her way through the throngs of people, her bright pink sneakers a stark contrast to the more subdued attire of those around her.
+
+Lexi lived in a small apartment above a vintage clothing store in the historic district, where she spent most of her days sipping coffee and dreaming up new sales strategies. With a quick wit and an infectious smile, she had built a reputation as one of the top-performing salespeople at her company, and was known for her ability to close even the toughest deals.
+
+As she walked, Lexi's mind began to wander to the meeting with a potential new client that morning. A wealthy tech mogul was in town for a major conference, and Lexi had been tasked with selling him on their innovative line of eco-friendly products. She tucked her phone into her pocket and stepped out onto the sidewalk, taking a deep breath of the cool autumn air as she scanned the crowded streets ahead.
+
+Little did she know, today would be the start of an adventure that would take her to the very limits of her confidence and push her to think outside the box – or in this case, the green cup.

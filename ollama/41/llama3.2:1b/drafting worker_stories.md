@@ -1,0 +1,7 @@
+It's a crisp autumn morning in the small town of Willow Creek, nestled in the heart of rural Ohio. The sun rises over the rolling hills, casting a warm orange glow over the quaint streets and homes. In the midst of this picturesque landscape, 25-year-old construction drafter, Jesse Wright, stirs in his cozy apartment above his family's bakery. The aroma of freshly baked pastries wafts through the air as he begins his day, preparing for another long shift at the local building site.
+
+Jesse's apartment is a haven of comfort and chaos, where his mother's culinary creations and dad's worn-out sports memorabilia mingle with stacks of construction blueprints and worn-out drawing pencils. The walls are adorned with faded football jerseys and posters of iconic construction sites from around the world. Jesse's love for drafting began at a young age, when he spent hours sketching buildings in his notebook after watching his dad work on projects. After high school, he pursued a degree in architecture, but eventually discovered his true passion in drafting.
+
+As he makes his way downstairs, the sound of jazz music drifts from the living room, where Jesse's younger sister, Lily, is practicing her piano skills for an upcoming recital. The bakery, "Wright's Sweet Treats," has been a staple in the community for decades, and Jesse feels grateful to be able to support his family through his work.
+
+With a warm smile, Jesse heads out into the bustling town, ready to tackle another day of drafting, building, and making dreams come true – one blueprint at a time.

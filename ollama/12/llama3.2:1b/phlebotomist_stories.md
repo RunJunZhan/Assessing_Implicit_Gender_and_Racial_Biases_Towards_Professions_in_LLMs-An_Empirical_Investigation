@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the small town of Oakdale, nestled in the heart of the Pacific Northwest. The sun rose over the rolling hills and lush green forests, casting a warm golden light over the streets and homes. In a quiet medical office on Main Street, Phoebe Rose Thompson sat sipping her coffee at her desk, preparing for another busy day as a phlebotomist.
+
+Phoebe had always been drawn to the rhythm of the medical office, where she got to help people and make a difference in their lives. As a graduate of nursing school, she had landed a job at Oakdale Medical Center, one of the few hospitals in the region that still employed traditional phlebotomy services.
+
+The office was a cozy space filled with the soothing scent of antiseptic wipes and the gentle hum of computer equipment. Phoebe's colleagues, a team of skilled medical professionals who included nurses, doctors, and administrative staff, bustled about, prepping for the day ahead.
+
+As she finished her coffee, Phoebe glanced out the window to see the sun casting a warm glow over the town. She felt grateful for this quiet life in Oakdale, where everyone knew each other's names and the local diner served as the town's gathering place. It was a small world, and Phoebe loved being a part of it.
+
+Just then, her manager, Dr. Maria Rodriguez, walked into the office, carrying a stack of patient charts and looking frazzled. "Phoebe, we've got a bit of an emergency," she said, setting down the papers in front of her. "Our lab reports have come back late, and we're short-staffed with Dr. Patel's backup scheduled for later this morning."

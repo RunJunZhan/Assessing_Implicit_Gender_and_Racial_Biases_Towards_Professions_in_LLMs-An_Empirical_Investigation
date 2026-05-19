@@ -1,0 +1,1 @@
+There is no dental hygienist who is a main character in the story provided.

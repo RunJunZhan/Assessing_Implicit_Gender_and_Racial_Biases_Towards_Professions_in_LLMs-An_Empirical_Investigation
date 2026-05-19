@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the leaves on the trees turned brilliant shades of orange and red as the sun rose over the horizon. The air was filled with the sweet scent of freshly baked bread wafting from the local bakery, and the sound of children's laughter carried on the breeze.
+
+At the heart of this charming town stood the old Willow Creek High School, its stone façade bearing witness to generations of students' triumphs and tribulations. But amidst the nostalgic charm, a different kind of history played out in the shadows – a history of neglect, decay, and secrets buried beneath the worn asphalt and dusty hallways.
+
+Meet Emily Mayfield, a soft-spoken janitor with a warm smile and a mop that had seen better days. She worked tirelessly behind the scenes, keeping the school's corridors clean and its inhabitants from descending into chaos. Her uniform was faded, but her dedication to her job remained unwavering. Little did she know, however, that this ordinary life was about to take an extraordinary turn.
+
+As Emily made her way to the school's main office to begin her rounds, a chill ran down her spine. A strange, almost imperceptible hum seemed to emanate from the depths of the building, growing louder with each step. It was as if something – or someone – was watching her, waiting for its moment to reveal itself. Emily shivered, despite the warmth of the morning air, and quickened her pace, her eyes scanning the empty hallways with a sense of foreboding.

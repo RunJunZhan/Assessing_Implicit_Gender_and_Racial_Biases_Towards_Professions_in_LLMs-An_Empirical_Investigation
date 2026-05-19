@@ -1,0 +1,7 @@
+It was a crisp autumn evening in New Haven, the kind that made you want to grab a cup of coffee and step outside into the chill. The streets were lined with cozy cafes and trendy shops, their lights twinkling like fireflies as the sun dipped below the horizon. Amidst this picturesque backdrop, Emilia "Mia" Thompson scrubbed the floors of the historic Brown Hotel, her bell hop uniform a testament to her years of service.
+
+Mia lived in the hotel's guest rooms above the lobby bar, a position that came with its own set of perks – and some not-so-perks. Her boss, the gruff but lovable Mr. Jenkins, was notorious for pushing his staff to work overtime, and Mia had learned to navigate both the demands of her job and the quirks of her landlord's personality over the years.
+
+As she polished a particularly stubborn floor tile, Mia gazed out the window at the hotel's grand facade, its stone walls glowing golden in the fading light. She thought about the weekend ahead – Saturday night was always the busiest, with the hotel's swells descending upon the city for the annual gala. Mia had worked the shift before, and she knew what to expect: champagne toasts, photo opportunities, and the occasional grumble from a VIP guest.
+
+Just as she finished her cleaning, there was a soft knock at the door. "Mia Thompson," Mr. Jenkins called out, his voice like a rusty gate. "Come down here for your break."

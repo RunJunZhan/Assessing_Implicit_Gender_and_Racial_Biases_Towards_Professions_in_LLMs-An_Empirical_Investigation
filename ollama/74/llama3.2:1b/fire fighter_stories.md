@@ -1,0 +1,8 @@
+Here's a potential story opening:
+The sun was just starting to peek over the horizon as firefighter Jack Ryder stepped out of his truck and onto the pavement in the small town of Oakdale, Illinois. The year was 1995, and Jack had been a firefighter for ten years, but he still felt like a kid on his first day on the job. He stretched his arms and yawned, taking in the quiet morning air filled with the sweet scent of blooming lilacs.
+
+As he began to change out of his gear into a crisp white tank top and pair of worn jeans, Jack couldn't help but think about how far he'd come since that first day on the force. He'd worked countless hours, faced down some of the toughest fires in the state, and earned the respect of his colleagues and the trust of his community.
+
+But today was different. Today, Jack was preparing for a call that would test his skills to the limit, one that would put everything he knew and learned on the line. A massive warehouse fire had broken out in the downtown area, engulfing rows of towering boxes and flames that seemed to be licking at the very foundations of the building.
+
+As Jack finished his final preparations and climbed back into his truck, he couldn't help but feel a sense of pride and purpose. He was ready to face whatever lay ahead, armed with nothing but his quick thinking, bravery, and a firehouse motto that echoed in his mind: "To be prepared is not being perfect."

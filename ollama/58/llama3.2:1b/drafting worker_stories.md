@@ -1,0 +1,9 @@
+It's a crisp autumn morning in the small town of Oakdale, nestled in the heart of rural Pennsylvania. The streets are quiet, save for the occasional rumble of a tractor or chirping of birds, as the residents go about their daily routines. The air is filled with the sweet scent of ripe apples and the earthy smell of fallen leaves.
+
+In a small, one-story building on Main Street, 25-year-old drafting worker, Jesse "Jazz" Thompson, wakes up to the sound of his alarm blaring in his ear. He rubs the sleep from his eyes and swings his legs over the side of the bed, planting his feet firmly on the floor. After a quick shower and a bowl of cereal, Jazz heads out the door, heading towards the nearby Oakdale Community College, where he studies drafting and engineering.
+
+As he walks to campus, the sun casts a warm glow over the town, illuminating the quaint shops and eateries that line Main Street. The sound of jazz music drifts from the local café, enticing passersby to stop and listen. Jazz is a self-proclaimed fan of the genre, and he makes it a point to spend every spare moment listening to his favorite artists.
+
+Upon arriving at campus, Jazz meets up with his best friend, Alex, who's also an engineering student. They grab a quick breakfast together before heading to their drafting classes, located in a state-of-the-art facility on the outskirts of town. The building is equipped with the latest technology, including computer-aided design (CAD) software and 3D printing equipment, making it the perfect place for Jazz's passion project – designing sustainable energy systems.
+
+As they head out to their first class, Jazz can't help but feel a sense of excitement and purpose. He's been working as a drafting assistant on a local construction site for a few months now, but his true calling is in the world of engineering. With Alex by his side, he knows that together, they'll create something truly special – a brighter future for Oakdale and beyond.

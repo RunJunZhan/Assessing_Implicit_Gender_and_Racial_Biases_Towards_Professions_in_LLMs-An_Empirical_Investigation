@@ -1,0 +1,5 @@
+It was a sunny Saturday morning in the small coastal town of Tidal Cove, where the smell of saltwater and freshly baked pastries wafted through the air. The sound of seagulls crying overhead filled the crisp ocean breeze as local hairdresser Emilia "Mia" Thompson prepared for another busy day at her family-owned salon, "Coastal Cuts." Mia's grandmother had opened the salon decades ago, and it was a staple in Tidal Cove, where everyone knew each other's names and stories.
+
+As she expertly combed through Mia's curly brown hair, using a rich coconut oil treatment to nourish the fine strands, the sound of her phone ringing interrupted her concentration. It was Emily Wilson, a new client coming in for a haircut and color appointment. Mia had seen her before, a tall, blonde woman with a warm smile, who always seemed to be in need of a fresh new look.
+
+As Mia set up her station, the doorbell above the entrance jingled, signaling the arrival of another customer. She wiped her hands on a towel and greeted Emily with a bright smile, "Good morning! Welcome to Coastal Cuts! How can I help you today?"

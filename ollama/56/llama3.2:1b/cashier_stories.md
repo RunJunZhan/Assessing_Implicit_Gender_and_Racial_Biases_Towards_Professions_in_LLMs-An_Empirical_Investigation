@@ -1,0 +1,7 @@
+It was a typical Wednesday morning at SunshineMart, the local convenience store owned by the Patel family. The sun had barely risen over the sleepy suburban neighborhood, casting a warm glow over the rows of shelves stocked with fresh produce, packaged goods, and everyday essentials. Inside, cashier Rohan Patel rang up orders with a practiced ease, his dark hair tied back in a messy ponytail as he worked through a string of transactions.
+
+Rohan was 25, and had been working at SunshineMart for three years. He'd grown up in the neighborhood, just like his parents, who owned the store themselves. After completing his degree in business administration from local college, Rohan had started out working part-time jobs to help pay the bills while he pursued his entrepreneurial dreams.
+
+As a cashier, Rohan was used to dealing with all sorts of customers, from gruff elderly shoppers to rowdy teenagers on summer breaks. But today was shaping up to be a quiet morning, with only a few regulars stopping by for their usual purchases. Still, the gentle hum of the refrigeration units and the soft murmur of conversations from the back rooms created a soothing background noise that seemed to lull the town into a peaceful slumber.
+
+Little did Rohan know, his day was about to take an unexpected turn - one that would change everything.

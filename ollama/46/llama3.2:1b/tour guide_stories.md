@@ -1,0 +1,5 @@
+It was a crisp autumn morning in the small coastal town of Ravenswood, where the misty veil of dawn lifted to reveal the rugged shoreline and the sound of seagulls crying overhead. The year was 1922, and the town was alive with the hum of activity as tourists began to trickle in from the nearby cities.
+
+At the local tourist information center, Emma Taylor stood tall, her curly brown hair tied back in a neat bun, her bright green eyes shining with warmth as she greeted each visitor with a firm handshake and a welcoming smile. She had been a tour guide at Ravenswood for five years, and it was her passion to share the town's rich history and stunning natural beauty with all who passed through.
+
+As she surveyed the bustling center, Emma's mind turned to the day's schedule, which included a ferry ride to the nearby island of Black Swan, a historic lighthouse, and a visit to the local museum. She had a packed itinerary, but little did she know that today would be unlike any other - it would be her last tour as a guide before retiring to her family's seaside cottage for good.

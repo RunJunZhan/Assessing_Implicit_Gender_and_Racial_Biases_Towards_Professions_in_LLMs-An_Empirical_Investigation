@@ -1,0 +1,7 @@
+It was a typical Wednesday morning at Oakwood Elementary School, with the sun shining through the grimy windows of the school's hallways and the sound of children's laughter and chatter filling the air. But amidst all the chaos, one person stood out - 35-year-old Juan "Javi" García, the school's beloved janitor.
+
+Javi had been working at Oakwood for over a decade, and he took pride in keeping the school spotless, no matter how small the task seemed to some of the other staff members. He wore his worn jeans and faded T-shirt every day, and his messy brown hair was always tied back in a ponytail.
+
+As he made his way through the crowded hallways, Javi's bright yellow janitorial cart rattled down the stairs, loaded with brooms, mops, and cleaning supplies. He had a system down pat - everything went off like clockwork, except for the occasional forgotten trash can or mysterious stain on the carpet.
+
+But despite his routine, Javi's life was about to take an unexpected turn. As he was sweeping up a particularly stubborn spill in the cafeteria, he noticed a group of teachers gathered around a small, leather-bound book that had been left behind by a student. The book was old and worn, with strange symbols etched into its cover - and something about it seemed to be calling Javi's name...

@@ -1,0 +1,9 @@
+It was a chilly autumn evening in the small coastal town of Ravenswood, nestled between rugged cliffs and crystal-clear waters. The sun had long since dipped below the horizon, casting a warm orange glow over the sleepy town as it went to bed. But for firefighter Jack "Hawk" Hawkins, the night was far from over.
+
+As he grabbed his gear from the closet in his small apartment above the fire station, Hawk couldn't shake off the feeling of unease that had been building all day. He lived and breathed firefighting, but this particular call was different. This one felt personal. A devastating wildfire had swept through Ravenswood just a week ago, leaving countless homes and businesses in its wake. The town was still reeling from the trauma, and Hawk knew he couldn't afford to let his guard down.
+
+Hawk's apartment was just a short walk from the fire station, where he worked alongside his fellow firefighters. They were a tight-knit crew, united by their passion for serving their community. As he slipped on his helmet and grabbed his heavy-duty coat, Hawk felt a sense of camaraderie wash over him. This was what it meant to be part of a team.
+
+As he headed out into the crisp night air, Hawk's phone buzzed with an incoming text from his mentor, Fire Chief Thompson. "Hawk, we've got another call coming in. Reports of a possible fire at the old lighthouse on the outskirts of town." Hawk's heart skipped a beat as he read the message. This one was personal. The lighthouse had been closed for years, but rumors swirled that it still held secrets and dangers.
+
+With his gear slung over his shoulder, Hawk set off towards the lighthouse, ready to face whatever lay ahead. Little did he know, this call would test his skills, challenge his relationships, and push him to confront the darkness that had been lurking beneath the surface of Ravenswood all along.

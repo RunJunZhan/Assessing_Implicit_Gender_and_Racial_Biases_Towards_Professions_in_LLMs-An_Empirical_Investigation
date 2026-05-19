@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, nestled in the heart of the Pacific Northwest. The sun rose over the misty hills, casting a warm glow over the quaint streets and homes. In the midst of this peaceful scene, 28-year-old photographer Emily Wilson stood on the edge of her family's old orchard, her camera at the ready.
+
+Emily had always been drawn to the beauty of nature, and as a child, she spent hours exploring the woods behind her house, capturing the changing colors and patterns of the leaves on film. After completing photography school in Vancouver, Emily had returned to Willow Creek to work as a freelance photographer, specializing in portrait and landscape shots for local businesses and publications.
+
+As she gazed out at the orchard, now overgrown with weeds and wildflowers, Emily felt a sense of nostalgia wash over her. This was the same place where she had grown up, playing hide-and-seek behind the apple trees with her siblings. It was also the spot where she had first started her photography business, printing her photos in a small shop on Main Street.
+
+Just as Emily was about to take a shot of the orchard's sprawling branches, her phone buzzed with an incoming text from her best friend, Rachel. The message read: "Meet me at the old oak by 10 am. I have some news."

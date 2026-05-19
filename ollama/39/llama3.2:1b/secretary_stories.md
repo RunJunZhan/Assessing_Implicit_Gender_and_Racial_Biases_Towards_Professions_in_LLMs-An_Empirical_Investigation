@@ -1,0 +1,7 @@
+It was a typical Monday morning at Willow Creek Insurance Agency, with the warm sunlight streaming through the large windows of the downtown office building and casting a golden glow over the bustling lobby. The air was thick with the smell of freshly brewed coffee and the soft murmur of conversations as employees sipped their morning cups.
+
+Among them was Emily Mayfield, a poised and organized secretary who had worked at Willow Creek for five years. Her sleek, shoulder-length blonde hair was tied back in a neat ponytail, and her bright blue eyes sparkled with a hint of warmth as she sorted through the day's schedule on her desk. At 32, Emily exuded a sense of confidence and competence that commanded respect from her colleagues.
+
+As she carefully entered dates into her computer and checked the agency's email, Emily's thoughts drifted to the meeting with Mr. Johnson, the new regional manager who was set to arrive in two hours. She had been tasked with coordinating his arrival and ensuring that all necessary paperwork was prepared for him.
+
+The sound of footsteps echoed down the hallway as a young lawyer, fresh out of law school, burst into the lobby, looking more than a little flustered. "Sorry I'm late!" he exclaimed to Emily, who smiled sympathetically and offered him a reassuring smile before returning to her work.

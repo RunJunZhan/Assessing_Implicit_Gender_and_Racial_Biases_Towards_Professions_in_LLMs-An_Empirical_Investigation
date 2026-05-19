@@ -1,0 +1,7 @@
+It was a typical Monday morning at the historic Oakwood Manor Hotel, nestled in the heart of the charming town of Willow Creek. The sun was shining brightly through the grand windows of the lobby, casting a warm glow over the bustling reception desk. Behind the desk stood Emily Patel, a poised and poised 25-year-old receptionist, who had worked at Oakwood for three years. She was responsible for greeting guests, handling phone calls, and coordinating room bookings, among other tasks.
+
+As she sorted through the day's schedule on her computer screen, Emily's mind wandered to the exciting events that lay ahead. The hotel's annual gala was just around the corner, and she had been tasked with finalizing the guest list. She sighed inwardly, anticipating the long hours of paperwork and phone calls that would follow.
+
+Just then, a gentle knock at the door interrupted her thoughts, followed by the soft voice of her coworker, Alex Chen, who had arrived to help with the morning rush. "Good morning, Em," he said with a warm smile. "I brought you some coffee. You need it after that long night of prepping for the gala."
+
+Emily smiled gratefully as she accepted the cup and took a sip, feeling a surge of gratitude towards her colleagues who worked tirelessly to keep the hotel running smoothly. As she looked out the window, watching the early morning traffic in Willow Creek, Emily felt a sense of pride knowing that Oakwood Manor Hotel was more than just a place to stay - it was a home away from home for so many people.

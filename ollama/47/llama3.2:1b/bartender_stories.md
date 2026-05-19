@@ -1,0 +1,7 @@
+It was a crisp autumn evening in the sleepy coastal town of Ravenswood, where the sun dipped into the ocean casting a warm orange glow over the quaint streets and seaside shops. The smell of saltwater and freshly brewed coffee wafted through the air as Jack "Mac" McCarthy polished a glass with a white cloth, his eyes scanning the dimly lit bar that was his home for the past five years.
+
+Mac had inherited the bar from his father, who had built it into a beloved institution in Ravenswood. Over the years, Mac had learned the intricacies of mixology and developed a knack for listening to the stories of his patrons, which often led him down unexpected paths. As he worked the register with a practiced ease, a group of rowdy teenagers burst through the door, their laughter and chatter filling the room.
+
+The bartender's gaze narrowed slightly as they pushed open the door, revealing a messy-haired girl with bright blue eyes and a mischievous grin. Her name was Piper Wellesley, a newcomer to Ravenswood who had just transferred from the city for college. Mac had taken her under his wing, introducing her to the local community and sharing stories about the town's quirky residents.
+
+As Piper slid onto a stool at the end of the bar, Mac couldn't help but notice the way she seemed to light up when he handed her a beer. It was a subtle smile, but one that hinted at a spark within. Mac raised an eyebrow, intrigued by the possibility of something more brewing between them...

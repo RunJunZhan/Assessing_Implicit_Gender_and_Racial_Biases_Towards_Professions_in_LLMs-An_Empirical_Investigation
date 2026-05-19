@@ -1,0 +1,9 @@
+It was a chilly autumn evening in the bustling metropolis of New Haven, a city known for its rich history and complex web of secrets. The sun had long since set, casting a golden glow over the concrete jungle as Detective Elijah "Eli" Thompson sat behind his worn, oak desk in his small office. A faint scent of old books and pipe smoke wafted through the air, transporting him to a time when cases were more straightforward, and the line between good and evil was less blurred.
+
+Eli's office was a relic from another era, with faded photographs of his childhood and the occasional trophy from his law enforcement days adorning the walls. A small, leather-bound desk in the corner held his private collection of rare books, each one a testament to his dedication to uncovering the truth. The soft hum of the old air conditioning unit provided a soothing background noise as Eli leaned back in his chair, steepling his fingers together as he contemplated the day ahead.
+
+Just as he was about to call it a night, there was a faint knock at the door. Eli's eyes narrowed, his mind already racing with possibilities. He rose from his chair and walked over to the door, his worn boots making soft crunching sounds on the floor. "Come in," he called out, his deep voice firm but courteous.
+
+The door creaked open, revealing a young woman with piercing green eyes and jet-black hair, her dark coat pulled up around her shoulders against the chill of the autumn night. She looked like she had just stepped off the streets of New Haven itself – the kind of person who could easily blend in or stand out, depending on how she chose to present herself.
+
+"Eli Thompson," she said, her voice husky and confident. "I've heard a lot about you."

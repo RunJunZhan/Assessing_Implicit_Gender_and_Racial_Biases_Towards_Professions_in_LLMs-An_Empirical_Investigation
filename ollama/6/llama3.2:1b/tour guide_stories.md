@@ -1,0 +1,9 @@
+It was a crisp autumn morning in the small coastal town of Tidestone, where the salty sea air filled the lungs and the sound of seagulls echoed through the streets. The sun was just starting to rise over the horizon, casting a warm glow over the quaint shops and restaurants that lined the main street.
+
+Aurora "Rory" Wynter, a seasoned tour guide with years of experience exploring the town's hidden gems, stood outside her small office, a colorful cottage with a sign creaking in the gentle breeze. She adjusted her worn leather jacket and tucked a few loose strands of hair behind her ear, giving herself a quick once-over before stepping out into the morning light.
+
+Rory lived for sharing Tidestone's secrets with visitors from all over the world, and she took pride in making each group tour a unique and memorable experience. As she sipped her coffee and checked her notes, a sense of excitement built in her chest, thinking about the day ahead – the first tour of the season, and the chance to show off Tidestone's best-kept secrets.
+
+As she boarded her trusty old van, affectionately named "Maeve," Rory caught sight of a familiar figure approaching from the direction of the marina. It was Jake Mitchell, a local fishing guide with years of experience in the town's waters. They had crossed paths at countless fishing tournaments and social gatherings, but tonight felt different – perhaps it was the promise of new clients or the excitement of opening a new season together.
+
+Rory waved her hand in greeting as Jake climbed aboard Maeve, his weathered face creasing into a warm smile. "Morning, Rory! I see you're up bright and early today."

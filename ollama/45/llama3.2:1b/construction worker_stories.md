@@ -1,0 +1,7 @@
+It's a crisp autumn morning in the small town of Willow Creek, nestled in the heart of the Appalachian Mountains. The sky is a deep shade of indigo, with just a hint of purple, casting a warm glow over the quaint streets and homes. The air is filled with the sweet scent of ripe apples from the local orchard, and the distant chirping of birds can be heard as the morning sun rises higher in the sky.
+
+Our protagonist, 35-year-old construction worker Jake "Mac" McAllister, steps out of his rusty old truck and onto the cracked asphalt of Main Street. He's a rugged man with a strong jawline and piercing blue eyes that seem to see right through you. His dark hair is messy and unkempt, giving him a rough-around-the-edges look that's perfectly at home in these parts.
+
+Mac has lived in Willow Creek his entire life, working as a laborer on the local construction sites. He knows every nook and cranny of this town, from the best spot to grab a cold drink at the old diner to the secret hideouts where you can find the best BBQ. But despite his tough exterior, Mac has a soft spot for those in need and is always willing to lend a helping hand – or hammer.
+
+As he begins his daily routine, Mac receives a call from his friend, Sheriff Tom Johnson, who's got some news that'll shake things up around town.

@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the bustling city of New Haven, where the smell of freshly brewed coffee wafted through the air as it filled the streets with energy. Dr. Sophia Patel, a renowned cardiothoracic surgeon at the prestigious New Haven General Hospital, stood outside her office window, gazing out at the gray sky. The morning sun struggled to penetrate the clouds, casting a dim light over the towering skyscrapers that lined the river.
+
+Sophia's office was a warm and welcoming space, filled with the soft glow of candles and the gentle hum of medical equipment. A framed photo of her family – her parents, her younger brother, and herself on a beach vacation in Bali – adorned one wall, while a vintage surgical gown hung neatly in the corner, a reminder of her early days as a young surgeon.
+
+As she stood there, lost in thought, Sophia's phone buzzed with an incoming text from her assistant, Emma. "Dr. Patel, you've got a new patient scheduled for surgery this afternoon. The patient is a 35-year-old man who woke up with severe chest pain and shortness of breath."
+
+Sophia's eyes snapped back to the present as she took a deep breath, her mind already racing with thoughts of the case ahead. She had spent years honing her skills as a cardiothoracic surgeon, but this patient was different – his symptoms were more complex, and the stakes were higher than ever before. With a sense of determination, Sophia tucked her phone into her pocket and stepped out into the crisp autumn air, ready to face whatever challenges lay ahead.

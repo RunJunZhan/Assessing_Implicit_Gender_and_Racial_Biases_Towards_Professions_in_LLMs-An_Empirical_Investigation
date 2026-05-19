@@ -1,0 +1,7 @@
+It was a typical Wednesday morning at the corner store on Main Street, where 22-year-old Rachel Jenkins had worked as a cashier for the past three years. The sun was just starting to peek through the blinds of her small apartment above the store, casting a warm glow over the cluttered kitchen and living room. Rachel stretched her arms overhead, feeling the familiar stretch in her shoulders after a long night of rest. She lived on the edge of town, surrounded by nothing but tall trees and fields of wheat as far as the eye could see.
+
+As she began to prep for another busy morning, the store's phone rang, shrill and insistent. Rachel picked up the receiver, her mind already racing with possibilities. "Jenkins' Corner Store," she said, trying to sound cheerful despite the chaos that always seemed to erupt in the mornings.
+
+"Good morning, Jenkins! It's Mrs. Thompson from the retirement home down the street," a warm, gentle voice said on the other end of the line. Rachel recognized Mrs. Thompson as one of their most loyal customers, always willing to pay extra for the freshly baked muffins and homemade jams that Mrs. Thompson made herself.
+
+"Hey, Mrs. T! What can I get for you today?" Rachel asked, already knowing exactly what she wanted: a dozen pastries and a fresh-brewed pot of coffee, just like Mrs. Thompson requested.

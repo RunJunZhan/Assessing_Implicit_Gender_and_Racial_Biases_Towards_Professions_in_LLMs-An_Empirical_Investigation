@@ -1,0 +1,5 @@
+It was a warm summer evening in the bustling city of New Haven, where the smell of freshly brewed coffee and baking pastries wafted through the air from the cozy cafes that lined the streets. Among the crowds of tourists and locals alike, one young woman stood out as she expertly juggled multiple tables of customers at her family-owned restaurant, Bella Vita.
+
+Her name was Sophia Elena Marquez, but the staff and regulars had taken to calling her Soph. With her dark hair tied back in a loose ponytail and a bright smile that could light up a room, Soph had been serving up delicious Italian dishes for years. She took pride in making every guest feel welcome and at home, whether they were celebrating a special occasion or just needed a quiet spot to relax.
+
+As the sun began to set over the city skyline, casting a golden glow over the restaurant, Soph's boss, Giovanni, poked his head out from the kitchen. "Soph, I need you to meet someone," he said, his thick Italian accent rumbling through the air.

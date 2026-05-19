@@ -1,0 +1,7 @@
+It's a chilly autumn morning in the small town of Ravenswood, nestled deep within the heart of the Appalachian Mountains. The year is 1922, and the air is crisp with the scent of damp earth and decaying leaves. The streets are quiet, save for the occasional chatter of pedestrians as they go about their daily business.
+
+In a worn, stone building that has stood watch over Ravenswood for generations, the local sheriff's office buzzes with activity. Inside, the main character, Deputy Elijah "Eli" Thompson, a rugged and seasoned guard, rises from his bed, stretching his broad frame and yawning widely. His dark hair is messy, and his piercing blue eyes seem to hold a thousand secrets as he gazes out the grimy window of his cell-like quarters.
+
+Eli has been on duty for nigh on three years now, ever since the town was plagued by a series of mysterious disappearances and gruesome murders. Despite his rugged exterior, Eli's heart still skips a beat at the mention of his last victim, a young woman named Abigail Wells, whose body was found in an abandoned mine on the outskirts of town.
+
+As Eli begins to get dressed for another long day of patrolling the streets, he receives a message from the sheriff himself – a note scrawled on a piece of yellowed paper, written in hasty, uneven script. The message reads: "Eli, I've got something for you. Meet me at the old windmill on the hill at midnight. Come alone."

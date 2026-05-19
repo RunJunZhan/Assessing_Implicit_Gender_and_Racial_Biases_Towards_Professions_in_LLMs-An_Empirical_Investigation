@@ -1,0 +1,9 @@
+It was a crisp autumn evening in the small coastal town of Raven's Cove, the kind of night that made you want to grab a pint of local IPA and sit on the beach watching the sun dip into the ocean. The town was alive with the sounds of laughter and chatter, the smell of sizzling burgers wafting from the food trucks that lined the streets.
+
+In a small, unassuming bar called "The CoastKeeper", bartender and owner, Charlotte "Charlie" Thompson, polished a glass with a white cloth, her dark hair tied back in a ponytail, her bright green eyes sparkling behind a pair of thick-framed glasses. She had been running The CoastKeeper for five years now, and it was a place where everyone knew each other's names, and sometimes even their business deals.
+
+As she wiped down the bar with a dirty rag, Charlie couldn't help but think about how much her life had changed since she first opened up the bar. It had started as a way to pay off her student loans after college, but it quickly became so much more than that. It was a place where people came to escape the world, if only for a few hours.
+
+The door swung open, and a tall, dark-haired man walked in, his piercing blue eyes scanning the bar before landing on Charlie with a nod of acknowledgement. He was dressed in worn jeans and a faded black t-shirt, his feet clad in scuffed up sneakers. A silver watch dangled from his wrist, and Charlie could swear she saw a small tattoo of a snake coiled around its band.
+
+"Welcome to The CoastKeeper," Charlie said, her voice smooth as honey, as she poured the stranger a whiskey on the rocks. "What can I get for you?"

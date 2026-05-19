@@ -1,0 +1,5 @@
+It was a typical Monday morning at "Bloom Beauty Bar," the small, family-owned salon in the heart of the city. The sun had barely risen over the towering skyscrapers, casting a warm glow over the bustling streets below. Inside the cozy salon, hairdresser and owner, Maya Singh, began to prepare for another day of cutting, coloring, and styling hair for her loyal clients.
+
+Maya, with her curly brown hair and bright hazel eyes, was known for her creativity and attention to detail in the kitchen as much as she was in the salon chair. She took pride in every haircut she gave, making sure each client left feeling confident and beautiful. As she styled her own short pixie cut, Maya's mind wandered to the long list of appointments lined up for the day ahead.
+
+Just then, the phone rang, breaking the silence. "Welcome to Bloom Beauty Bar," a cheerful voice said on the other end. "Maya Singh at your service."

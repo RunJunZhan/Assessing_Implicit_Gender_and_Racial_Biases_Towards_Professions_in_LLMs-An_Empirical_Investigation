@@ -1,0 +1,7 @@
+It was a crisp autumn morning in the small town of Willow Creek, where the streets were lined with towering oak trees and the air was sweet with the scent of ripe apples. The sun was just starting to peek above the horizon, casting a warm golden light over the quaint town square. In the midst of this peaceful scene, 25-year-old Emma Taylor stood outside the local clinic, her long brown hair tied back in a ponytail as she sipped on a lukewarm cup of coffee.
+
+Emma had always been drawn to the medical field, and after completing her nursing program at a nearby university, she landed an internship at the Willow Creek Clinic. As a phlebotomist, Emma was responsible for preparing patients for blood draws and collecting samples from veins in their arms or legs. She took pride in her work, ensuring that each patient received precise and comfortable care.
+
+As she made her way to the clinic's central office, Emma couldn't help but feel a sense of excitement for another day ahead. Today was supposed to be a busy one, with multiple patients scheduled for blood draws and lab tests. But so far, the morning had been smooth sailing, with only a few minor hiccups to deal with.
+
+Little did Emma know, today's routine would take an unexpected turn when her supervisor, Dr. Lee, called her into his office for a chat.
